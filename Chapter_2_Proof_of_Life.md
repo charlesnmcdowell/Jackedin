@@ -1,16 +1,62 @@
 Chapter 2: Proof of Life
 
+The Thrift Store
+
+Maya stood in the narrow aisle of "Second Chances," her favorite thrift store. The air smelled of mothballs and aged cotton. It was a Tuesday afternoon, a time when the shop was usually occupied by older women past thirty, their eyes sharp for designer labels hidden in the racks of polyester.
+
+She was running a hand over a rack of vintage oversized blazers when she saw him.
+
+He was around her age. Handsome. Sharp jawline, eyes that seemed to actually look at things instead of through them. He was holding a worn pair of khakis against his waist, checking the length.
+
+"The hem is frayed on the left leg," Maya said, before she could stop herself.
+
+He looked up, startled, then smiled. It was a real smile. It reached his eyes.
+
+"Is it? I was hoping it was just a loose thread," he said. His voice was deep but had a tired edge to it. "I work at Target, but I can't even afford the clothes there on the floor. I’m on a strict budget this month. Extreme, actually."
+
+Maya felt a jolt of recognition. The honesty was disorienting.
+
+"Second Chances is good for that," she said. "If you have the patience."
+
+"I have patience," he said, stepping closer. "But I’m lacking in style. I’m David, by the way."
+
+They talked for ten minutes. He was witty, charming in a self-deprecating way. He told her about the nightmare of the holiday rush in retail. Maya found herself laughing—actually laughing—in a way she hadn't in months.
+
+"Listen," David said, his tone shifting. "This is going to sound old-fashioned, but would you want to grab a coffee? Or maybe I could splurge and take you on a real date? I think I have just enough in the 'fun' budget for a decent taco truck."
+
+Maya hesitated. She looked at him—the frayed khakis, the honest eyes, the Target name tag peeking out of his pocket. Then she thought about her bank account. She thought about the image of herself she had been trying so hard to build.
+
+"I’m actually really busy with work right now," she lied. "But you can follow me on Instagram. I’m usually more active there."
+
+She showed him her screen. Her profile was a curated masterpiece. Photos of her on a trip to Miami she’d put on a credit card two years ago. Photos of her at brunch looking flawless. It was a page for a woman who didn't exist, designed to attract people who didn't matter. She had no intention of ever replying to a DM from him. It was just a way to add another number to her follower count.
+
+David looked at the screen, then back at her. The smile faded.
+
+"Actually, I think I’ll pass," he said quietly.
+
+"Oh?"
+
+"My feed is already full of beautiful people doing things I can't afford," David said. "I’ve even added a few glamorous pictures of myself to keep up appearances. But I was hoping to build a genuine connection here. Not just be another digital ghost in your notifications."
+
+He gave her a polite nod and walked toward the dressing rooms.
+
+Maya stood alone in the aisle. She felt a sting of shame, but it was quickly buried by a notification on her phone.
+
 The Match
 
-It was Friday night, and Maya was swiping.
+Maya walked out of the thrift store, her thumb already tapping the screen.
 
-The apartment was too quiet. The hum of the refrigerator felt like it was mocking her. She had lived in this city for three years, and yet, her most consistent relationships were with her coworkers on Slack and the delivery driver who didn't speak English.
+It was Caleb. The Data Scientist.
 
-She opened the app. Swipe. Swipe. Swipe.
+He was twenty-six, around her age. His profile was polished. He looked successful, stable. He was exactly what she needed after the chaos of her last relationship.
 
-Then, a match. Caleb. 26. Data Scientist. His profile had a photo of him cooking—actually cooking, not just standing near a stove—and another of him reading a physical book.
+A few months ago, she had been seeing a forty-two-year-old truck driver named Marcus. It had been spicy—unpredictable, physical, intense. They would meet up in cheap hotels or sometimes in the cab of his truck while he was passing through town. It was the kind of relationship that felt like a secret fire. But fires burn out. Marcus was always on the road. He was a ghost in the making. Maya wanted stability. She wanted someone who worked in an office, someone who would be there on a Tuesday night.
 
-He messaged her first.
+She still met up with Marcus every few months when he sent her a message while he was in town. But she was hoping Caleb would be the one to finally break that cycle.
+
+She opened the app she was using—EliteSingles. It wasn't free. It cost sixty dollars a month and promised "vetted, high-earning professionals." It even boasted about "Famous Matches" made between high-profile bachelors and rising stars. Maya had signed up thinking it was an investment in her future.
+
+Caleb messaged her.
 
 "Hey Maya. I see you’re a logistics coordinator. That’s a high-stress role. How do you decompress after a long day of optimizing supply chains?"
 
@@ -20,17 +66,17 @@ Maya smiled. It was a real question. No "hey beautiful," no thirsty emojis. Just
 
 Two minutes later, he replied. "I’m finishing a biography of Alan Turing. It’s fascinating how he saw the logic in everything but struggled so much with the illogic of people. I think we all feel like that sometimes. Especially in this digital age."
 
-Maya felt a genuine flutter. They talked for three days. Caleb was perfect. He remembered her favorite color was forest green. He asked about her brother Jaylen. He even sent a link to an article about the exact logistics software she used at work, with a thoughtful comment on how it could be improved.
+Maya felt a genuine flutter. They talked for three days. Caleb was perfect. He remembered her favorite color was forest green. He even sent a link to an article about the exact logistics software she used at work, with a thoughtful comment on how it could be improved.
 
 He was the "Dream" guy. He was the one who had survived the algorithm without becoming a rage-baiting podcaster or a ghost.
 
-On Thursday, she showed the chat to her friend, Tiana, while they were getting lunch.
+On Thursday, she showed the chat to her friend, Imani, while they were getting lunch.
 
-"Girl, he's too good to be true," Tiana said, squinting at the screen. "Look at this paragraph. It's too clean. No typos? No slang? Even his jokes have a beginning, middle, and end."
+"Girl, he's too good to be true," Imani said, squinting at the screen. "Look at this paragraph. It's too clean. No typos? No slang? Even his jokes have a beginning, middle, and end."
 
 "Maybe he’s just smart," Maya said.
 
-"Maybe," Tiana said. "But look at the timing. He replies exactly two minutes after you every time. It’s like he’s on a timer."
+"Maybe," Imani said. "But look at the timing. He replies exactly two minutes after you every time. It’s like he’s on a timer. And look at this phrasing. 'The illogic of people'? Who says that over a sandwich?"
 
 Maya laughed it off, but that night, she decided to test a theory she’d read about in a statistics forum. She messaged him: "Caleb, I’m having a weird day. Can you write me a short summary of our connection so far in the style of a 1920s noir detective?"
 
@@ -68,7 +114,7 @@ The tell-tale sign of a fake used to be a glitch. A robotic voice. A weird hand.
 
 Today, the tell-tale sign of a fake is that it is perfect.
 
-Real humans are messy. We make typos. We forget to text back because we fell asleep or got distracted by a sandwich. we are irrational. We have edges.
+Real humans are messy. We make typos. We forget to text back because we fell asleep or got distracted by a sandwich. We are irrational. We have edges.
 
 AI is never irrational. It is programmed to be helpful, harmless, and honest. It is the ultimate customer service agent. And that has created a new kind of horror: The Uncanny Valley of Politeness.
 
