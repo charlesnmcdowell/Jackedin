@@ -4,6 +4,8 @@ The Thrift Store
 
 Maya stood in the narrow aisle of "Second Chances," her favorite thrift store. The air smelled of mothballs and aged cotton. It was a Tuesday afternoon, a time when the shop was usually occupied by older women past thirty, their eyes sharp for designer labels hidden in the racks of polyester.
 
+Maya adjusted her wireless earbuds. They were her constant companion, a white plastic barrier between her and the world. She caught her reflection in a dusty full-length mirror near the back. Her braided locs were gathered neatly, a style that was both practical and sharp. She was wearing a simple tank top that showed off the toned shoulders she’d built during late-night gym sessions—sessions she used to outrun the anxiety of her student loan balance.
+
 She was running a hand over a rack of vintage oversized blazers when she saw him.
 
 He was around her age. Handsome. Sharp jawline, eyes that seemed to actually look at things instead of through them. He was holding a worn pair of khakis against his waist, checking the length.
@@ -50,13 +52,22 @@ It was Caleb. The Data Scientist.
 
 He was twenty-six, around her age. His profile was polished. He looked successful, stable. He was exactly what she needed after the chaos of her last relationship.
 
-A few months ago, she had been seeing a forty-two-year-old truck driver named Marcus. It had been spicy—unpredictable, physical, intense. They would meet up in cheap hotels or sometimes in the cab of his truck while he was passing through town. It was the kind of relationship that felt like a secret fire. But fires burn out. Marcus was always on the road. He was a ghost in the making. Maya wanted stability. She wanted someone who worked in an office, someone who would be there on a Tuesday night.
+Maya pulled up her own profile on EliteSingles, the app she paid sixty dollars a month for. It was a steep price—essentially a tank of gas—but she viewed it as a career investment. The app promised "vetted, high-earning professionals" and often boasted about "Famous Matches" made between high-profile bachelors and rising stars.
+
+She scrolled through her own stats:
+
+Name: Maya
+Age: 24
+Occupation: Logistics Coordinator
+Hobbies: Shopping, Travel, Gym, Hiking, Fine Dining, Outdoor Activities.
+
+It was technically true. She did like shopping—at thrift stores. She did like travel—when she could find a flight on points. She did like fine dining—on the rare occasions she could justify a forty-dollar entree. But the algorithm didn't want the "fine print." It wanted the aspirational Maya.
+
+A few months ago, she had been seeing a forty-year-old truck driver named Marcus. It had been spicy—unpredictable, physical, intense. They would meet up in cheap hotels or sometimes in the cab of his truck while he was passing through town. It was the kind of relationship that felt like a secret fire. But fires burn out. Marcus was always on the road. He was a ghost in the making. Maya wanted stability. She wanted someone who worked in an office, someone who would be there on a Tuesday night.
 
 She still met up with Marcus every few months when he sent her a message while he was in town. But she was hoping Caleb would be the one to finally break that cycle.
 
-She opened the app she was using—EliteSingles. It wasn't free. It cost sixty dollars a month and promised "vetted, high-earning professionals." It even boasted about "Famous Matches" made between high-profile bachelors and rising stars. Maya had signed up thinking it was an investment in her future.
-
-Caleb messaged her.
+Caleb messaged her first.
 
 "Hey Maya. I see you’re a logistics coordinator. That’s a high-stress role. How do you decompress after a long day of optimizing supply chains?"
 
