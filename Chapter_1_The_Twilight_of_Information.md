@@ -41,7 +41,7 @@ Swipe.
 
 A video from Nia.
 
-Maya stopped scrolling. She loved Nia. Nia was "The Budget Bestie," a financial influencer Maya had followed since college. Nia was real. She gave practical advice about 401ks and meal prepping. She didn't shill crypto or scams.
+Maya stopped scrolling. She loved Nia. Nia was "The Budget Bestie," a financial influencer Maya had followed since college. Nia was real. She gave practical advice about 401k retirement plans and meal prepping. She didn't shill crypto or scams.
 
 In the video, Nia was sitting in her familiar home office with the Monstera plant in the background. She looked serious, compassionate.
 
