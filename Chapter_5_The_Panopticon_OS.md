@@ -204,13 +204,15 @@ He didn't stop. He lifted her higher, his strength terrifying and thrilling. The
 
 She fumbled with his belt, freeing him. His manhood was massive, throbbing with heat. She took him into her mouth, tasting the salt and desire on him, while he continued to devour her from below. It was a loop of pure sensation, a display of strength that made her feel entirely possessed. She came hard, crying out against his skin, her body shuddering in his grip.
 
-He laughed, a low rumble against her stomach, and carried her to the bed.
+He carried her to the bed, the moment demanding something more primal.
 
-He found the silk restraints she kept in a drawer but never used. He tied her wrists to the headboard, his eyes dark with intent. He stripped off his shirt, revealing the cords of muscle in his shoulders and back, sweat already glistening on his skin. He flipped her over, pulling her hips flush against him. The connection was primal, a collision of raw need that erased the stress of the spreadsheets and the surveillance. He took her from behind, his rhythm punishing and perfect, hitting a spot deep inside her that made the world narrow down to just friction and heat.
+He found the silk restraints she kept in a drawer but never used. He tied her wrists to the headboard, his eyes dark with intent. He stripped off his shirt, revealing the cords of muscle in his shoulders and back, sweat already glistening on his skin. He positioned himself behind her, pulling her hips flush against his. The connection was visceral, a collision of raw need that erased the stress of the spreadsheets and the surveillance.
 
-They moved together, harder and faster, until the cheap wooden slats of the platform bed gave a loud *CRACK* and collapsed under their combined weight.
+He took her with long, deep strokes, his rhythm punishing and perfect, hitting a spot deep inside her that made the world narrow down to just friction and heat. With every thrust, he claimed her, his movements becoming more aggressive, more desperate.
 
-They froze, tangled in the sheets and the wreckage, then collapsed into breathless laughter.
+The cheap wooden slats of the platform bed groaned under their combined weight, but Marcus didn't stop. He drove into her harder, chasing his own release, until the frame gave a loud *CRACK* and collapsed.
+
+In that moment of chaos, he let go. He groaned, a guttural sound torn from his chest, as he came inside her, filling her completely. They lay there in the wreckage, breathless, a thick warmth dripping from her as they panted against the broken headboard.
 
 "My bad," Marcus chuckled, wiping sweat from his forehead. "I'll help you replace it. Too much torque."
 
