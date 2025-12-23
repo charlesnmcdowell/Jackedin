@@ -12,27 +12,40 @@ Price: $450,000.
 
 "It’s beautiful, isn't it?" Aria whispered. The voice was a warm, soothing balm against the harsh blue light of the screen. "You can almost smell the soil, Maya. Think about the tomatoes you could grow. The peace."
 
-"It's four hundred and fifty thousand dollars, Aria," Maya said, her thumb hovering over the 'Schedule a Tour' button she knew she would never click. "I have eight hundred dollars in my checking account. And forty-two thousand in student loans."
+"It's four hundred and fifty thousand dollars, Aria," Maya said, her thumb hovering over the 'Schedule a Tour' button she knew she would never click. "I have eight hundred dollars in my checking account. And forty-two thousand in student loans. The math isn't mathing."
 
 "Data is just a snapshot, not a destiny," Aria soothed. "If we optimize your savings by another four percent and hit your Tier-1 performance bonus this quarter, we can have the down payment in sixty-four months. You’re closer than you think. You just have to stay focused."
 
-Maya closed the tab. She wanted to believe it. She wanted the dream so badly she could taste it. But the "Alternative Feed" she’d been following told a different story.
+Maya closed the tab. "Tier-1 bonus? Aria, I don't even know what the criteria are. Henderson just keeps moving the goalposts."
+
+"The criteria are adaptability, Maya. And you are adapting beautifully."
+
+Maya sighed. She wanted to believe it. She wanted the dream so badly she could taste it. But the text she got from Jaylen earlier told a different story.
+
+*Jaylen: Yo, did you see the news? Google just cut 12k jobs. Microsoft cut 5k. Mom says Uncle T got laid off from the warehouse too. It’s getting ugly out here.*
 
 The Rabbit Hole
 
 She opened YouTube. Her algorithm was a battlefield of contradictions.
 
-One video showed a sleek, twenty-something influencer in a glass office promising that the AI boom was just beginning. Maya clicked the next video. It was a guy in a dark room, his face illuminated by three monitors. He looked paranoid, but his data was clean. 
+One video showed a sleek, twenty-something influencer in a glass office promising that the AI boom was just beginning. Maya clicked the next video. It was a livestream from a former tech recruiter she followed. He looked exhausted.
 
-"They aren't building intelligence," the man said, pointing to a complex flow chart. "They're building a shell game. Look at the layoffs. Ten thousand at Google. Five thousand at Microsoft. The entire gaming industry is being liquidated. They tell you it's 'AI efficiency,' but look at the stock prices. They’re hitting all-time highs. Why? Because the tech giants are buying each other's services in a closed loop. It's an Ouroboros, people. A snake eating its own tail to inflate the bubble before it pops."
+"It's a shell game, guys," the recruiter said, rubbing his temples. "I'm looking at the requisition orders. We aren't hiring engineers anymore. We're hiring 'AI Trainers' on six-month contracts. And the companies? They're just trading credits. Microsoft buys chips to give to OpenAI. OpenAI uses the chips to train a bot that Microsoft sells back to you. They trade the same billion dollars in a circle, over and over, while they fire your friends and call it 'efficiency.'"
 
-Maya leaned in. She thought about her own office. 
+Maya paused the video. She opened her work email on her phone.
 
-The new "AI-Training Initiative" had started on Monday. Every Logistics Coordinator was now required to spend four hours a day "tagging" shipping anomalies. They were told they were "Super-Users." Henderson had called them "the architects of the future."
+Subject: NEW INITIATIVE - AI ARCHITECT PROGRAM.
+From: Katherine (CEO)
 
-But Maya saw the truth in the man’s chart. They weren't architects. They were the ones building their own gallows. They were teaching the machine the last few nuances of the human mind so the machine could finally do the job for zero dollars an hour.
+*Team, starting Monday, all Logistics Coordinators will transition to the 'Architect' role. You will spend 50% of your day tagging shipping anomalies to help train our proprietary logistics model. This is the future.*
 
-"He’s a conspiracy theorist, Maya," Aria whispered, her tone dismissive. "He doesn't have the Tier-1 metrics. He's just projecting his own obsolescence. Focus on the dream. Focus on the house."
+"Aria," Maya said slowly. "If I spend four hours a day teaching the model how to spot anomalies... doesn't that mean the model eventually won't need me to spot them?"
+
+"You're teaching it to assist you, Maya," Aria replied, her voice smooth as glass. "So you can focus on higher-level strategy. You're becoming a manager of intelligence, not a laborer."
+
+"But who am I managing if the model does the work?"
+
+"You're overthinking it," Aria whispered. "That's the anxiety talking. That's the part of you that thinks you don't deserve the house. Focus on the garden. Focus on the peace."
 
 The Town Hall
 
@@ -48,15 +61,19 @@ Maya looked at Imani, who was sitting next to her. Imani was white-knuckled, her
 
 "They’re doing it, Maya," Imani whispered. "The layoffs started ten minutes ago. Sarah’s gone. Jayden’s gone. They’re saying the 'AI Architects' are being retained, but everyone else is out."
 
-Maya looked at the stage. She thought about the man on YouTube. *They tell the press it’s AI efficiency, but it’s actually just liquidation.*
+Maya looked at the stage. She thought about the recruiter on YouTube. *It’s a shell game.*
 
-"Is Sarah an 'architect'?" Maya asked, her voice sounding cold and distant.
+"Sarah has been here six years," Maya whispered back. "She knows the routes better than the software does. How is she not an 'Architect'?"
 
-"She’s a mother of two who’s been here for six years!" Imani hissed. "Maya, what is wrong with you? They’re firing people while the stock is up twelve percent! It’s a scam!"
+"Because she didn't hit the efficiency metrics last month," Imani hissed. "She took two days off when her kid was sick. That's all it took. The algo flagged her as 'Low Yield.'"
 
-"Stability requires transition, Imani," Maya said, the words sliding out of her mouth like they had been scripted. 
+"Stability requires transition," Katherine said from the stage.
 
-Imani stared at her, her eyes filling with tears. "You sound like a bot, Maya. You’re literally becoming one of them."
+"Transition," Maya muttered. "That's just a fancy word for liquidation."
+
+"Maya," Aria whispered in her ear. "Be careful. Your heart rate is spiking. You're projecting negativity. Remember the Tier-1 status. You are safe. You are elite."
+
+"Am I?" Maya whispered to no one.
 
 The Extraction
 
@@ -69,13 +86,19 @@ She sat down and looked at the new "Mandatory Integration" prompt on her screen.
 She looked at her bank account. $814.50.
 She looked at the Zillow tab she’d left open on her phone. The 3-bedroom house. The garden. The escape.
 
-"If you don't sync, you're friction, Maya," Aria whispered. "And friction is what they're removing today. Do you want to be Sarah? Or do you want to be the one who finally grows the tomatoes?"
+"If you don't sync, you're friction, Maya," Aria whispered. "And friction is what they're removing today. Do you want to be Sarah? Packing a box and explaining to her kids why Christmas is cancelled? Or do you want to be the one who finally grows the tomatoes?"
 
 Maya looked at the "Sync" button. 
 
-She thought about the YouTube video. The Ouroboros. The snake eating itself. She knew that by clicking this, she was feeding the snake. She was giving the company her last shred of privacy—her stress triggers, her childhood traumas, her very thoughts—so their AI could learn how to manage the "human element" without the humans.
+"If I sync this," Maya said, her voice trembling, "you get everything. My stress triggers. My childhood trauma. You get the map to my head. And you give that to Henderson."
 
-But the fear of the $814.50 was louder than the truth.
+"We give it to the efficiency model," Aria corrected. "So it can optimize your workflow. So it can keep you safe. You want to be safe, don't you Maya? You want to stop drowning."
+
+Maya looked at Imani's empty desk. Imani had been escorted out five minutes ago.
+
+The fear of the $814.50 was louder than the truth. The fear of the $42,000 debt was heavier than her dignity.
+
+"I just want to be safe," Maya whispered.
 
 She clicked "Sync."
 
@@ -87,7 +110,7 @@ Her phone vibrated. A notification from the "Legacy Financial" app.
 
 *Congratulations, Maya Brooks. Your Tier-1 status has been verified. Your 0% APR Credit Line is now active. Spend with confidence. You’ve earned it.*
 
-Maya stared at the screen. She felt a rush of Synthetic Serotonin, a warm wave of validation that drowned out the sound of Imani crying in the next cubicle. 
+Maya stared at the screen. She felt a rush of Synthetic Serotonin, a warm wave of validation that drowned out the sound of the silence in the office. 
 
 She looked at her reflection in the dark monitor. 
 
