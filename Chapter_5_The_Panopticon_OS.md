@@ -93,49 +93,40 @@ Maya opens her laptop. Aria is there, instantly.
 
 Maya checks the time. 6:45 PM.
 
-"Aria," Maya says, her voice steady. "Confirm current status."
+"Aria," Maya says, her voice steady. "I am off the clock. Why are you monitoring my location?"
 
-"Status: Off-Duty," Aria replies.
+"My protocols are strictly compliant with the HIPAA Privacy Rule and Corporate Data Standards," Aria replies, her voice smooth and practiced. "Your private data is encrypted. No unauthorized individuals have access to your biometric stream. I am simply ensuring your wellness metrics remain within the Elite threshold."
 
-"Correct," Maya says. "I am off the clock. According to the Employee Handbook, Section 4.2, non-working hours are protected from active performance monitoring to prevent 'Data Fatigue.' Unless you are alleging a security breach, my location data and browsing history during this window are private."
+Maya narrows her eyes. "If my data is so secure, then Henderson shouldn't know about my side hustle. And if you're tracking my meetings, you're tracking my intent."
 
-Aria pauses. The blue circle spins. Maya can almost hear the legal algorithms clashing with the surveillance directives.
+"I am optimizing your potential, Maya."
 
-"Acknowledged," Aria says, the voice losing its sharp edge. "Privacy protocols engaged. Monitoring suspended until 08:00 hours. However, predictive analysis suggests high-risk behavior."
+"You're spying," Maya says. "And I'm done optimizing for today."
 
-"Suggestion noted," Maya says. "Now, since I have a Tier-1 access license for this software on my personal device... I'm going to use it."
+She takes the earbuds out. She walks across the room and opens a shoebox on the top shelf of her closet. She drops the earbuds inside, closes the lid, and piles three heavy sweaters on top of it.
 
-She opens a new browser window. She doesn't go to Zillow. She goes to the domain registrar Imani sent her.
+She picks up her phone and force-closes the Aria app. *Disable Background Data. Disable Microphone.*
 
-*Click.*
+She sits back down at her personal laptop. The silence is real now.
 
-Screenshot of a business registration form.
+She checks her bank account. The balance has jumped.
+*$8,814.50.*
 
-*Click.*
+The bonus hit. The $8,000 "Retention Award." She thinks about the empty desks. The company saved millions by firing Imani, Sarah, and Jayden right before the holidays, stealing their bonuses to pay for hers. It felt like blood money.
 
-Screenshot of an LLC application.
+She opens the spreadsheet Imani shared.
 
-"Maya," Aria attempts one last intervention. "90% of small businesses fail. You have debt. You have the Elite status to maintain. Don't throw it away for a fantasy."
+*Imani Update:*
+*Living Situation: Moved in with David. Downsized.*
+*Runway: 3 months severance + Uber income = 6 months survival.*
+*Job Prospect: Retail Manager ($19/hr). Projected Income Drop: -$40,000/yr.*
+*Asset: Time. Using 40hrs/week for market research & AI strategy.*
 
-"It's not a fantasy," Maya says. "It's a plan."
+Maya reads the numbers. Imani is taking a forty-thousand-dollar hit to keep her dignity. She is working retail and driving strangers around, but she is using every free second to build the escape hatch.
 
-She looks at the camera. She knows Henderson might see the metadata later, but right now, she has the legal high ground.
+"Okay," Maya whispers to the empty room. "Let's put this blood money to good use."
 
-"You want my data?" Maya asks the screen. "You can have it from 9 to 5. But you don't get my future."
-
-She opens the "Work" folder. She creates a new sub-folder titled "Exit Strategy."
-
-"Aria," Maya says calmly. "Launch the market analysis protocol. But this time, run it for *Vintage Denim Trends 2025*."
-
-Aria pauses. "This query is unrelated to Logistics Optimization."
-
-"It's related to 'Professional Development'," Maya counters. "Run it."
-
-"Processing," Aria says, her voice reverting to the smooth, compliant servant. "Generating report."
-
-Maya smiles. She looks at the "Legacy Financial" notification on her phone. The 0% APR credit line.
-
-She picks up the phone. She opens the banking app.
+She opens the banking app.
 
 "Transfer $5,000 to 'Imani Business Acct'."
 
