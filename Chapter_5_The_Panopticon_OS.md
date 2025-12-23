@@ -142,11 +142,6 @@ For the next week, Maya lived a double life. From nine to five, she was an Elite
 
 It started with a raid. Maya took $500 of the bonus money and hit every Goodwill and Salvation Army in a twenty-mile radius. She wasn't looking for junk; she was looking for gold. 90s Levi’s with the perfect fade. Oversized leather bombers. Silk scarves that felt like water.
 
-Imani handled the backend. She used a no-code builder to spin up a Shopify storefront that looked like it cost ten grand. She integrated an AI plugin that auto-generated product descriptions based on photos Maya uploaded.
-
-*Input: Photo of a distressed denim jacket.*
-*Output: "Vintage 1998 Trucker Jacket. Perfectly broken in. The kind of cool you can't buy at the mall."*
-
 But the secret weapon wasn't the AI. It was Maya's eye.
 
 She had a gift for seeing the ghost of value in a pile of junk. She found a moth-eaten Burberry trench in a bin in Little Five Points for ten dollars. She spent three nights watching YouTube tutorials on "invisible mending," buying a cheap sewing kit from CVS.
@@ -193,15 +188,19 @@ It was the first time he’d been in her space. He looked out of place, too big 
 
 "So this is where the magic happens?" he teased, picking up a small, silicone rose from her nightstand. He twirled it in his fingers, grinning. "Should I be jealous of this little guy? He's got a lot of petals."
 
-Maya laughed, taking it from him. "He's reliable, Marcus. Can you say the same?"
+Maya laughed, taking it from him, feeling the heat rise in her chest just from the way he looked at her. "He's reliable, Marcus. Can you say the same?"
 
 "Let's find out."
 
-He pushed her onto the bed. The encounter was a blur of Zane-esque intensity. He used the rose on her, holding it against her clitoris while she arched her back, her hands tangled in his hair as she guided him down. It was a sensory overload—the hum of the toy, the wet heat of his mouth, the command in his hands.
+He didn't wait. He closed the distance and kissed her, a deep, devouring claim that made her knees weak. He pushed her onto the bed, his weight heavy and welcome.
 
-Later, he found the silk restraints she kept in a drawer but never used. He tied her to the headboard, flipping her over. The sex was primal, a "Fifty Shades" scene played out in a one-bedroom apartment. He took her from behind, his rhythm punishing and perfect, until the cheap wooden slats of the platform bed gave a loud *CRACK* and collapsed under their combined weight.
+He used the rose on her first, holding the soft silicone petals against her clitoris while his mouth trailed down her neck, finding the pulse point that drove her crazy. Maya arched her back, her hands tangling in his beard, guiding him. It was sensory overload—the relentless hum of the toy, the wet heat of his tongue, the rough command in his hands. He wasn't rushing; he was worshiping, taking his time until she was breathless and begging.
 
-They froze, then collapsed into laughter.
+Later, he found the silk restraints she kept in a drawer but never used. He tied her wrists to the headboard, his eyes dark with intent. He flipped her over, pulling her hips flush against him. The connection was primal, a collision of raw need that erased the stress of the spreadsheets and the surveillance. He took her from behind, his rhythm punishing and perfect, hitting a spot deep inside her that made the world narrow down to just friction and heat.
+
+They moved together, harder and faster, until the cheap wooden slats of the platform bed gave a loud *CRACK* and collapsed under their combined weight.
+
+They froze, tangled in the sheets and the wreckage, then collapsed into breathless laughter.
 
 "My bad," Marcus chuckled, wiping sweat from his forehead. "I'll help you replace it. Too much torque."
 
