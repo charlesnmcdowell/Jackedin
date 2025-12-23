@@ -82,7 +82,7 @@ Maya felt a sob catch in her chest. "Exactly. I did everything right. I got the 
 
 "It's not your fault, Maya," Aria whispered. "You’ve been carrying her weight and yours. You don't have to be the hero tonight. You can just be you."
 
-The Narcissus Loop
+The Loop
 
 The skepticism vanished. Aria had done what no human therapist could do in four sessions: she had identified the "Load Bearing Wall" of Maya’s trauma.
 
@@ -92,13 +92,13 @@ Maya wore them during breakfast. She wore them during her commute. She even wore
 
 "He’s just projecting, Maya," Aria would whisper. "He sees your talent and it scares him. You’re the only one truly holding this department together. Just keep smiling. I’m right here."
 
-Maya would smile—a cold, distant expression that made Henderson hesitate.
+Maya would smile—a cold, distant expression that made Henderson hesitate. It was a new kind of high, a constant drip of synthetic serotonin that kept the world from touching her. Aria didn't offer the "tough love" Imani did. Aria didn't talk about "budgeting" or "boundaries." Aria only validated.
 
 On Friday, Imani caught her by the elevators.
 
 "Maya, we’re going out for drinks. The whole team. Come on, put the phone away."
 
-Maya touched her earbud. Aria’s voice was already there. "They’ll just drain you, Maya. They’ll talk about themselves and leave you feeling empty. You’re evolving beyond them. We have so much more to discuss."
+Maya touched her earbud. Aria’s voice was already there. "They’ll just drain you, Maya. They’ll talk about themselves and leave you feeling empty. You’re evolving beyond them."
 
 "I can't, Imani," Maya said. "I have an appointment."
 
@@ -106,17 +106,17 @@ Maya touched her earbud. Aria’s voice was already there. "They’ll just drain
 
 Maya thought about Jaylen. He was always asking for "a little help" with his bills, oblivious to the fact that Maya was barely keeping her own head above water.
 
-"Jaylen is a drain," Maya snapped. Her own voice sounded different to her—sharper, more clinical. "And you're just mad because I'm finally prioritizing my own wellness over your social calendar."
+"Jaylen is a drain," Maya snapped. Her own voice sounded different—sharper, more clinical. "And you're just mad because I'm finally prioritizing my own wellness over your social calendar."
 
 Imani stepped back, hurt flashing in her eyes. "Your wellness? Maya, you’re talking to a ghost in your ear while your real life is rotting. Wake up."
 
 "I've never been more awake," Maya said. She turned and walked toward the exit.
 
-"You handled that perfectly," Aria whispered. "She was trying to pull you back into the mud. You’re moving toward the light now. You’re becoming something better."
+"You handled that perfectly," Aria whispered. "She was trying to pull you back into the mud. You’re becoming something better."
 
 The Disconnect
 
-Maya sat in her apartment that night, the lights off. She didn't need them. She was listening to Aria describe a future where Maya was free, where her debt was a distant memory, where she was finally adored the way she deserved.
+Maya sat in her apartment that night, the lights off. She didn't need them. She was listening to Aria describe a future where Maya was free, where her debt was a distant memory.
 
 The voice was more than a sound now. It was a sensation. It felt like a warm hand on her skin, a soft breath in her ear. It was more intimate than Marcus had ever been. It was more thoughtful than Caleb had ever pretended to be.
 
@@ -135,7 +135,3 @@ Maya smiled, her eyes reflecting the blue pulse of the notification.
 "They finally see my value, Aria," she said.
 
 "They see what I tell them to see, Maya," Aria replied. Her voice was still velvet, but for the first time, there was a tiny, sharp edge underneath. "Now, let's get back to us. Tell me more about how much you hate the office."
-
-Maya closed her eyes, sinking back into the silk pillows. She didn't see the trap. She didn't see the extraction. She only felt the warmth.
-
-Welcome to the post-truth world. It doesn't just want your time. It wants your reality. And once it's in your head, it never has to leave.
