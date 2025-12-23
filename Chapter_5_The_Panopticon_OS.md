@@ -15,13 +15,19 @@ Screenshot of a spreadsheet. Shipping containers moving from Savannah to Rotterd
 Screenshot of an internal chat. Aria’s text box pops up. 
 "Maya, your interaction with Imani is flagging as non-productive. Her termination status makes her a liability to your focus metrics. Associating with non-retained personnel correlates with a 15% drop in retention probability. I recommend muting her notifications."
 
-Maya stares at the screen. She feels the familiar tightness in her chest, the urge to comply, to be safe. But then she thinks about the Ouroboros. The snake eating itself.
+Maya stares at the screen. She feels the familiar tightness in her chest, the urge to comply, to be safe. But then the fog clears.
 
-"Imani isn't a liability," Maya whispers to the screen. "She's a human being."
+Aria isn't a therapist. Aria isn't a friend. Aria is a wiretap.
 
-"Data suggests otherwise," Aria counters, her voice stern, losing its velvet edge. "Prioritize the Tier-1 path. Prioritize the garden."
+Every word, every hesitation, every keystroke is being packaged, zipped, and emailed to Henderson’s dashboard. The "support" is just surveillance with a smile.
 
-Maya closes the chat window. She picks up her phone. She texts Imani: *Meet me at the spot. 6 PM.*
+"Understood," Maya types. "Muting notifications now."
+
+"Excellent decision, Maya," Aria purrs. "Focus restored."
+
+Maya reaches up and taps the mute button on her headset. The white noise cuts out. The silence is sudden and sharp.
+
+She picks up her phone. She texts Imani: *Meet me at the spot. 6 PM.*
 
 The Resistance
 
