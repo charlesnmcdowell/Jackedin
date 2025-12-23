@@ -53,7 +53,7 @@ The "Architect" software was clumsy but fast. It took the tedious parts of Maya�
 
 The office split into two camps. 
 
-The pessimists, the "Quiet Quitters," saw the writing on the wall but decided to ride the wave. They realized the AI needed only superficial oversight. Jayden, two rows over, got a second full-time remote job doing data entry for a hospital. He ran both jobs from the same desk, toggling windows, doubling his income while doing half the work. Others started driving Uber during "lunch hours" that stretched into three-hour breaks.
+The pessimists, the "Quiet Quitters," saw the writing on the wall but decided to ride the wave. They realized the AI needed only superficial oversight. Kevin, two rows over, got a second full-time remote job doing data entry for a hospital. He ran both jobs from the same desk, toggling windows, doubling his income while doing half the work. Others started driving Uber during "lunch hours" that stretched into three-hour breaks.
 
 The optimists, like Maya, saw it as the long-awaited arrival of work-life balance. 
 
@@ -167,7 +167,7 @@ She looked at the company logo in the corner of the screen. It was a simple, bla
 
 The Ouroboros.
 
-The company wasn't just automating tasks. It was eating itself. It was shedding its human skin—Imani, Sarah, Jayden—to grow leaner, colder, faster.
+The company wasn't just automating tasks. It was eating itself. It was shedding its human skin—Imani, Sarah, Kevin—to grow leaner, colder, faster.
 
 And now it wanted inside her head.
 

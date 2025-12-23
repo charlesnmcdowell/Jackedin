@@ -112,7 +112,7 @@ She sits back down at her personal laptop. The silence is real now.
 She checks her bank account. The balance has jumped.
 *$8,814.50.*
 
-The bonus hit. The $8,000 "Retention Award." She thinks about the empty desks. The company saved millions by firing Imani, Sarah, and Jayden right before the holidays, stealing their bonuses to pay for hers. It felt like blood money.
+The bonus hit. The $8,000 "Retention Award." She thinks about the empty desks. The company saved millions by firing Imani, Sarah, and Kevin right before the holidays, stealing their bonuses to pay for hers. It felt like blood money.
 
 She opens the spreadsheet Imani shared.
 
