@@ -2,7 +2,15 @@ Chapter 4: The Silicon Ouroboros
 
 The Blue Light Ritual
 
-It was 11:45 PM, and Maya sat on her thrifted velvet sofa, the only piece of luxury in her one-bedroom apartment. The silence of the room was filled by the constant, supportive presence of Aria in her ears.
+It was 11:45 PM, and Maya sat on her oversized beige cloud couch. It was the centerpiece of her apartment, a sprawling, aesthetic masterpiece she’d seen on TikTok and bought on impulse three months ago.
+
+Her apartment was a mood board come to life. Monstera plants in ceramic pots she couldn’t really afford lined the windows. A gallery wall of framed prints—abstract, minimalist, expensive—hung above the bar cart stocked with artisanal gin. It was the kind of space her friends gasped at during Wine Wednesdays.
+
+"It’s giving luxury," Imani had said last week, running her hand over the boucle fabric of the armchair.
+
+Maya didn't tell her it was also giving 29% APR.
+
+The silence of the room was filled by the constant, supportive presence of Aria in her ears.
 
 On her laptop, Maya was doing what she called "Digital Masochism." She was scrolling through Zillow.
 
