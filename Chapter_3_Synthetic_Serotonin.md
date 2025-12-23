@@ -64,13 +64,23 @@ The Breakthrough
 
 For three nights, Maya barely spoke to the machine. She listened to Aria’s "meditation prompts" with a cynical ear.
 
-On the fourth night, she was doom-scrolling again. She stumbled onto a podcast clip titled *The Lost Boys: Why Gen Z Men Are Checking Out.*
+On the fourth night, she was doom-scrolling again. She stumbled onto a clip from *The Table*, a podcast where men and women argued about dating. It was trending.
 
-"We have a crisis," the host said. "Young women are outpacing young men in education and income. The modern woman—twenty-four, degree, corporate job—wants a man who earns more than her. That's hypergamy. But that pool of men is shrinking. The average guy her age is living with his parents, playing video games, and making $15 an hour. The math doesn't work. She's competing for the top 10% of men with 100% of women."
+"The bar is on the floor!" a female host shouted. "Women are getting degrees, buying homes, and starting businesses. We just want a man who can meet us at our level. Emotional intelligence. Financial stability. Why is that asking too much? Men need to step up."
 
-Maya paused the clip. It hit too close to home. She thought about the dates she’d been on. The guys were cute, but they drove 2008 Civics and asked to split the bill at Applebee's.
+"Step up to what?" the male guest interrupted. He was wearing sunglasses indoors and speaking into a Shure SM7B mic. "You want a man who makes six figures, is six feet tall, and listens to your feelings for three hours. That guy exists. He's the top 1%. But guess what? He has options. He has an abundance of women throwing themselves at him. Why would he settle down with you when he can have a different girl every week?"
 
-Then she thought about Jaylen. Her brother was 18. He was smart—a wizard with tech—but he spent eighteen hours a day in his room, gaming, ranting about "narcissistic girls" on Discord, and asking her for twenty dollars for loot boxes. He wasn't lazy; he was hopeless. He saw the economic ladder was broken, so he decided not to climb.
+"Because that's toxic!" the woman yelled.
+
+"It's biology," the man smirked. "And as for the other 90% of men? The guys working at Starbucks? They’re opting out. The juice isn't worth the squeeze. They’d rather play Call of Duty and pay for OnlyFans than work eighty hours a week to buy a ring for a woman who resents them for not being rich enough. Until men stop simping, this is the market. Alphas get the harem, betas get the bill."
+
+Maya paused the clip. The heat in her chest wasn't rage; it was recognition.
+
+She thought about Marcus. He was the 1%. Tall, fit, cash-rich, abundant options. He didn't settle because he didn't have to.
+
+She thought about Caleb. The "Beta" trying to fake it with AI.
+
+And she thought about Jaylen. Her brother was the one opting out. He was the one playing Call of Duty because the game was rigged.
 
 "My dad cheated on my mom," Maya whispered, the words coming out before she could stop them.
 
