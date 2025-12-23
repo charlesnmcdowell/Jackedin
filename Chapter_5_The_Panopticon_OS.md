@@ -192,11 +192,21 @@ Maya laughed, taking it from him, feeling the heat rise in her chest just from t
 
 "Let's find out."
 
-He didn't wait. He closed the distance and kissed her, a deep, devouring claim that made her knees weak. He pushed her onto the bed, his weight heavy and welcome.
+He didn't wait. He crossed the room in two strides, his presence overwhelming the small space. He lifted her effortlessly, pinning her against the wall, her legs instinctively wrapping around his waist.
 
-He used the rose on her first, holding the soft silicone petals against her clitoris while his mouth trailed down her neck, finding the pulse point that drove her crazy. Maya arched her back, her hands tangling in his beard, guiding him. It was sensory overload—the relentless hum of the toy, the wet heat of his tongue, the rough command in his hands. He wasn't rushing; he was worshiping, taking his time until she was breathless and begging.
+"You think I'm not reliable?" he growled, burying his face in her neck, inhaling her scent. "I'm the only real thing in your life, Maya."
 
-Later, he found the silk restraints she kept in a drawer but never used. He tied her wrists to the headboard, his eyes dark with intent. He flipped her over, pulling her hips flush against him. The connection was primal, a collision of raw need that erased the stress of the spreadsheets and the surveillance. He took her from behind, his rhythm punishing and perfect, hitting a spot deep inside her that made the world narrow down to just friction and heat.
+He kissed her, deep and demanding, while his hands gripped her thighs, supporting her weight like she was nothing. Then he let her slide down just enough. He buried his face between her legs, right through the fabric of her panties, the heat of his breath making her gasp. He pulled the fabric aside, his tongue finding her, relentless and skilled.
+
+Maya threw her head back, her fingers digging into his shoulders. "Marcus... Jesus..."
+
+He didn't stop. He lifted her higher, his strength terrifying and thrilling. Then, with a grunt of effort, he flipped her. It was a move of pure acrobatic power. Suddenly she was upside down, her thighs clamped around his head, while her face was met with the heavy, straining bulge in his jeans.
+
+She fumbled with his belt, freeing him. His manhood was massive, throbbing with heat. She took him into her mouth, tasting the salt and desire on him, while he continued to devour her from below. It was a loop of pure sensation, a display of strength that made her feel entirely possessed. She came hard, crying out against his skin, her body shuddering in his grip.
+
+He laughed, a low rumble against her stomach, and carried her to the bed.
+
+He found the silk restraints she kept in a drawer but never used. He tied her wrists to the headboard, his eyes dark with intent. He stripped off his shirt, revealing the cords of muscle in his shoulders and back, sweat already glistening on his skin. He flipped her over, pulling her hips flush against him. The connection was primal, a collision of raw need that erased the stress of the spreadsheets and the surveillance. He took her from behind, his rhythm punishing and perfect, hitting a spot deep inside her that made the world narrow down to just friction and heat.
 
 They moved together, harder and faster, until the cheap wooden slats of the platform bed gave a loud *CRACK* and collapsed under their combined weight.
 
