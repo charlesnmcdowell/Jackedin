@@ -16,13 +16,13 @@ He’s watching a kid in the parking lot, maybe twenty years old, sitting in a w
 
 The phone in Marcus’s cup holder vibrates. It’s Junior.
 
-"Dad, you see the ticker? We’re hitting the moon," Junior says. His voice is frantic, vibrating with the same energy as the kid in the Tesla. "I’m up to a hundred and six thousand. I’m thinking about cashing out some of the profit. I want to buy you that new electric rig, the one with the sleeper suite and the massage chair. You shouldn't be breaking your back in that old rattle-trap anymore."
+"Dad, you see the ticker? We’re hitting the moon," Junior says. His voice is frantic, vibrating with the same energy as the kid in the Tesla. Junior doesn't talk about money like it’s something you work for. He talks about it like it’s a high score in a video game. "I’m up to a hundred and six thousand. I’m thinking about cashing out some of the profit. I want to buy you that new electric rig, the one with the sleeper suite and the massage chair. You shouldn't be breaking your back in that old rattle-trap anymore. It’s not efficient, Dad."
 
-Marcus grips the steering wheel. His knuckles are scarred, the skin thick and calloused from forty years of manual labor. He feels the ache in his lower vertebrae, a dull, insistent reminder of every crate he ever lifted on the farm, every engine he ever pulled in his thirties.
+Efficient. The word tastes like copper in Marcus's mouth.
 
 "I don't need a massage chair, Junior," Marcus rumbles. "I need you to not lose the principal. That hundred thousand is a ghost until you put it in a rubber band. You hear me?"
 
-"You don't get it, Dad. The internet says we're holding the line. We’re taking it back from the suits."
+"You don't get it, Dad. A rubber band is a liability. Inflation is eating your cash while I’m holding the line. We’re taking it back from the suits. It’s just numbers, Pop. Just numbers on a screen."
 
 Junior lost twenty thousand on Dogecoin two weeks later. The massage chair became a myth. The retirement rig became a memory. A ghost eating a ghost.
 
@@ -30,23 +30,23 @@ The Buffet
 
 Marcus is forty-two. Marcus is six-foot-two. Marcus is two hundred and twenty pounds of lean muscle and scarred knuckles.
 
-His coworker, a guy named Slim who spent too much time staring at his phone and not enough time checking his tire pressure, showed him the future.
+He’s sitting in a booth at a Flying J, watching his coworker, Slim, swipe through his phone like he’s playing a slot machine. Slim is fifty, with a gut that hangs over his belt and a wife who hasn't looked at him in a decade.
 
-"It’s called Hinge, Marc," Slim said, tapping the screen. "You set the location to where you're headed. By the time you park the rig, you got three dates lined up. No more bars. No more guessing. It’s like a digital buffet, man."
+"Look at this one, Marc," Slim says, shoving the phone in his face. "Knoxville. Twenty-five. Says she loves 'experienced' men. I got her lined up for Tuesday."
 
-Marcus looked at the screen. The women were stunning. They were high-definition dreams. They had perfect skin, perfect hair, and teeth that looked like they cost more than Marcus’s first truck. They were "Travelers," "Foodies," and "Aspirers."
+Marcus looks at the screen. The woman is a high-definition dream. Perfect skin, perfect hair, teeth that look like they cost more than Marcus’s first truck.
 
-"This is real?" Marcus asked.
+"How do you know she's real?" Marcus asks.
 
-"As real as it gets," Slim said.
+"Who cares?" Slim laughs, his eyes glued to the screen. "The bars are empty, man. Everybody’s at home doing this. If you want to get laid in this new world, you gotta go where the eyes are."
 
-Marcus installed the app. He uploaded a photo of himself in a tight black tee, his biceps straining against the sleeves, his beard groomed to a razor edge. He looked like a king among peasants. He knew he was a "hot physical specimen." He knew how to put on the outfit that accentuated the tone and the endowment. He knew the smooth words and the charming manner.
+Marcus installs the app. Reluctantly. He uploads a photo of himself in a tight black tee, his biceps straining against the sleeves, his beard groomed to a razor edge. He looks like a king among peasants. He knows he is a "hot physical specimen." He knows how to put on the outfit that accentuates the tone and the endowment. He knows the smooth words and the charming manner.
 
-The hits came instantly. A notification for every mile he drove.
+The hits come instantly. A notification for every mile he drives.
 
 First was a woman in Knoxville. "I love a man who knows how to handle a big machine," she messaged. Her photo showed a petite blonde in a sundress. 
 
-Marcus met her at a diner near the exit. She was a hundred pounds heavier than her photo. She smelled like stale cigarettes and a deep, quiet desperation. She talked about her "career in influencer marketing," which turned out to be selling weight-loss tea to five hundred bots.
+Marcus met her at a diner near the exit. She was a hundred pounds heavier than her photo. She smelled like stale cigarettes and a deep, quiet desperation. She talked about her "career in influencer marketing," which turned out to be selling weight-loss tea to five hundred bots. Marcus paid for her coffee and left before the second cup.
 
 Next was a "Latina Queen" in Atlanta. Marcus showed up at the hotel bar, his skin smelling of expensive cologne and the faint, underlying scent of diesel. The woman who met him wasn't even the person in the profile. She was a different person entirely, using a cousin's photos to harvest a free dinner and a night in a room he’d already paid for.
 
