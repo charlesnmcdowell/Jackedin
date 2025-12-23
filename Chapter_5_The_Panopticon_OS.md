@@ -41,13 +41,19 @@ She turns the screen. A video titled *FIRE: Financial Independence, Retire Early
 
 "It used to be just for tech bros," Imani explains, scrolling through a spreadsheet she’s built. "But look at this. The tools we used at the office? The ones that replaced us? We can use them too."
 
-"For what?" Maya asks, sipping her tea. "To build another Ouroboros?"
+"I don't know, Imani," Maya says, sipping her tea. "I'm not a tech wizard like Jaylen. I wouldn't know the first thing about setting up AI to run a business."
 
-"No," Imani grins. "To build an exit ramp. Look at your apartment, Maya. You have the eye. You know vintage. You know style. What if we started our own thing? A curated thrift shop. High-end, sustainable fashion."
+"You don't need to be a wizard," Imani says, leaning forward. "Me and David have been deep-diving on this. It's plug-and-play now. The AI writes the code. The AI handles the logistics. You just need the vision." She pauses. "You used to talk about your dream gig, remember? Before the student loans hit. What was it?"
 
-"Imani, we don't have capital. We don't have a team."
+Maya looks out the window. She thinks back to college. To the sketchbooks she filled with outfit ideas. To the thrill of finding a vintage Dior jacket in a bin in Paris during her study abroad.
 
-"We don't need a team," Imani taps the screen. "I used an open-source agent to build the website this morning. It took ten minutes. I found another one that handles inventory management and shipping labels automatically. The barriers are gone, Maya. The same tech that fired me can make us free."
+"Fashion," Maya says softly. "I wanted to travel. Source vintage pieces from all over the world. Tokyo, Milan, Houston. Just... curate beautiful things."
+
+"The Curated Closet," Imani says, typing it into the spreadsheet. "Global Thrift. High-end, sustainable, remote."
+
+"It's just a fantasy," Maya sighs. "I'd need capital. Inventory. A warehouse."
+
+"No," Imani grins. "You need a laptop and a plane ticket. I used an open-source agent to build the website this morning. It took ten minutes. I found another one that handles drop-shipping and inventory management automatically. The barriers are gone, Maya. The same tech that fired me can make us free."
 
 Maya looks at the screen. *The Curated Closet. Global Sourcing.*
 
