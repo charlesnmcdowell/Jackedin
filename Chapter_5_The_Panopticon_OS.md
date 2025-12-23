@@ -147,7 +147,23 @@ Imani handled the backend. She used a no-code builder to spin up a Shopify store
 *Input: Photo of a distressed denim jacket.*
 *Output: "Vintage 1998 Trucker Jacket. Perfectly broken in. The kind of cool you can't buy at the mall."*
 
-But the secret weapon wasn't the AI. It was Marcus.
+But the secret weapon wasn't the AI. It was Maya's eye.
+
+She had a gift for seeing the ghost of value in a pile of junk. She found a moth-eaten Burberry trench in a bin in Little Five Points for ten dollars. She spent three nights watching YouTube tutorials on "invisible mending," buying a cheap sewing kit from CVS.
+
+By Wednesday, she had patched the lining and conditioned the leather buckles. It looked brand new.
+
+*Cost: $15. Listed Price: $250. Sold in 4 hours.*
+
+"I miss this," she told Imani, holding up a pair of needle-nose pliers she used to fix a zipper. "Working with my hands. It feels... honest."
+
+"Honest pays the bills," Imani said. "But we need scale."
+
+"One day," Maya mused, looking at her blistered thumb. "Maybe we get a 3D printer. Print our own buttons, our own jewelry. Maybe even one of those sewing bots I saw on TikTok. But for now, it's just me and the needle."
+
+It felt right. That 3-bedroom house on Zillow felt like a distant planet, but this? owning a sewing machine, owning the inventory? That felt close. That felt real.
+
+But the other secret weapon was Marcus.
 
 "Okay, hold it up to the light," Maya said, squinting at her phone screen.
 
