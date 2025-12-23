@@ -119,7 +119,7 @@ Maya felt the blood drain from her face. "What? Why? Your metrics are green. You
 
 "Did they say anything else?"
 
-"They sent a separation agreement. Three months severance if I sign an NDA today." Imani started crying. "Maya, I’ve been looking for another job for three months. Just to be safe. There’s nothing out there. The postings are fake. The recruiters are ghosts. I’ve been driving Uber to stack cash, but it’s not enough. Me and David were talking about trying for a baby. I have that heart condition, I need the insurance. If I lose this..."
+"They sent a separation agreement. Three months severance if I sign an NDA today." Imani started crying. "Maya, I’ve been looking for another job for three months. Just to be safe. There’s nothing out there. The postings are fake. The recruiters are ghosts. I’ve been driving Uber to stack cash, but it’s not enough. Me and Dante were talking about trying for a baby. I have that heart condition, I need the insurance. If I lose this..."
 
 Maya looked out the window. The self-driving truck was humming along perfectly, a machine that didn't need sleep, didn't need insurance, and didn't have a heart condition.
 

@@ -61,7 +61,7 @@ Maya looks back at Imani’s spreadsheet. She remembers Jaylen’s words. *You d
 
 "I don't know, Imani," Maya says, sipping her tea. "I'm not a tech wizard like Jaylen. I wouldn't know the first thing about setting up AI to run a business."
 
-"You don't need to be a wizard," Imani says, leaning forward. "Me and David have been deep-diving on this. It's plug-and-play now. The AI writes the code. The AI handles the logistics. You just need the vision." She pauses. "You used to talk about your dream gig, remember? Before the student loans hit. What was it?"
+"You don't need to be a wizard," Imani says, leaning forward. "Me and Dante have been deep-diving on this. It's plug-and-play now. The AI writes the code. The AI handles the logistics. You just need the vision." She pauses. "You used to talk about your dream gig, remember? Before the student loans hit. What was it?"
 
 Maya looks out the window. She thinks back to college. To the sketchbooks she filled with outfit ideas. To the thrill of finding a vintage Dior jacket in a bin in Paris during her study abroad.
 
@@ -117,7 +117,7 @@ The bonus hit. The $8,000 "Retention Award." She thinks about the empty desks. T
 She opens the spreadsheet Imani shared.
 
 *Imani Update:*
-*Living Situation: Moved in with David. Downsized.*
+*Living Situation: Moved in with Dante. Downsized.*
 *Runway: 3 months severance + Uber income = 6 months survival.*
 *Job Prospect: Retail Manager ($19/hr). Projected Income Drop: -$40,000/yr.*
 *Asset: Time. Using 40hrs/week for market research & AI strategy.*
