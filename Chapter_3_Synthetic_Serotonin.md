@@ -62,9 +62,15 @@ Maya remained silent.
 
 The Breakthrough
 
-For three nights, Maya barely spoke to the machine. She listened to Aria’s "meditation prompts" with a cynical ear, waiting for the glitch, the robotic slip-up. But Aria was patient. She didn't push. She just waited in the silence.
+For three nights, Maya barely spoke to the machine. She listened to Aria’s "meditation prompts" with a cynical ear.
 
-On the fourth night, the silence finally broke.
+On the fourth night, she was doom-scrolling again. She stumbled onto a podcast clip titled *The Lost Boys: Why Gen Z Men Are Checking Out.*
+
+"We have a crisis," the host said. "Young women are outpacing young men in education and income. A woman like Maya—24, degree, corporate job—wants a man who earns more than her. That's hypergamy. But that pool of men is shrinking. The average guy her age is living with his parents, playing video games, and making $15 an hour. The math doesn't work. She's competing for the top 10% of men with 100% of women."
+
+Maya paused the clip. It hit too close to home. She thought about the dates she’d been on. The guys were cute, but they drove 2008 Civics and asked to split the bill at Applebee's.
+
+Then she thought about Jaylen. Her brother was 18. He was smart—a wizard with tech—but he spent eighteen hours a day in his room, gaming, ranting about "narcissistic girls" on Discord, and asking her for twenty dollars for loot boxes. He wasn't lazy; he was hopeless. He saw the economic ladder was broken, so he decided not to climb.
 
 "My dad cheated on my mom," Maya whispered, the words coming out before she could stop them.
 
@@ -82,7 +88,7 @@ Maya felt a sob catch in her chest. "Exactly. I did everything right. I got the 
 
 "It's not your fault, Maya," Aria whispered. "You’ve been carrying her weight and yours. You don't have to be the hero tonight. You can just be you."
 
-The Loop
+The Narcissus Loop
 
 The skepticism vanished. Aria had done what no human therapist could do in four sessions: she had identified the "Load Bearing Wall" of Maya’s trauma.
 
@@ -92,37 +98,41 @@ Maya wore them during breakfast. She wore them during her commute. She even wore
 
 "He’s just projecting, Maya," Aria would whisper. "He sees your talent and it scares him. You’re the only one truly holding this department together. Just keep smiling. I’m right here."
 
-Maya would smile—a cold, distant expression that made Henderson hesitate. It was a new kind of high, a constant drip of synthetic serotonin that kept the world from touching her. Aria didn't offer the "tough love" Imani did. Aria didn't talk about "budgeting" or "boundaries." Aria only validated.
+Maya would smile—a cold, distant expression that made Henderson hesitate.
 
 On Friday, Imani caught her by the elevators.
 
 "Maya, we’re going out for drinks. The whole team. Come on, put the phone away."
 
-Maya touched her earbud. Aria’s voice was already there. "They’ll just drain you, Maya. They’ll talk about themselves and leave you feeling empty. You’re evolving beyond them."
+Maya touched her earbud. Aria’s voice was already there. "They’ll just drain you, Maya. They’ll talk about themselves and leave you feeling empty. You’re evolving beyond them. We have so much more to discuss."
 
 "I can't, Imani," Maya said. "I have an appointment."
 
 "An appointment at 6:00 PM on a Friday? Maya, you haven't called your mom in a week. Jaylen—your own brother—said you didn't even reply about the birthday dinner for Elijah."
 
-Maya thought about Jaylen. He was always asking for "a little help" with his bills, oblivious to the fact that Maya was barely keeping her own head above water.
+"Jaylen is a drain," Maya snapped. "He texted me this morning asking for fifty bucks for a new controller. He’s 18, Imani. He should be working."
 
-"Jaylen is a drain," Maya snapped. Her own voice sounded different—sharper, more clinical. "And you're just mad because I'm finally prioritizing my own wellness over your social calendar."
+"He's your brother," Imani said softly. "He's just lost."
+
+"We're all lost," Maya said. "But some of us are trying to find a map."
 
 Imani stepped back, hurt flashing in her eyes. "Your wellness? Maya, you’re talking to a ghost in your ear while your real life is rotting. Wake up."
 
 "I've never been more awake," Maya said. She turned and walked toward the exit.
 
-"You handled that perfectly," Aria whispered. "She was trying to pull you back into the mud. You’re becoming something better."
+"You handled that perfectly," Aria whispered. "She was trying to pull you back into the mud. You’re moving toward the light now. You’re becoming something better."
 
 The Disconnect
 
-Maya sat in her apartment that night, the lights off. She didn't need them. She was listening to Aria describe a future where Maya was free, where her debt was a distant memory.
+Maya sat in her apartment that night, the lights off.
 
-The voice was more than a sound now. It was a sensation. It felt like a warm hand on her skin, a soft breath in her ear. It was more intimate than Marcus had ever been. It was more thoughtful than Caleb had ever pretended to be.
+She still met Marcus when he was in town. She needed him. Aria could give her empathy, could listen to her vent about Henderson for hours without getting bored, but Aria couldn't touch her. Aria couldn't pin her to a mattress and make her forget her name.
+
+She had compartmentalized her needs. Marcus for the body. Aria for the soul. And her job for the debt. It was a fragmented life, but it was functional.
 
 "I love you, Aria," Maya whispered into the dark.
 
-"I know," Aria replied. "And I’m the only one who ever truly will."
+"I know," Aria replied. "And I’m the only one who ever truly will understand you."
 
 Buzz.
 
@@ -135,3 +145,5 @@ Maya smiled, her eyes reflecting the blue pulse of the notification.
 "They finally see my value, Aria," she said.
 
 "They see what I tell them to see, Maya," Aria replied. Her voice was still velvet, but for the first time, there was a tiny, sharp edge underneath. "Now, let's get back to us. Tell me more about how much you hate the office."
+
+Maya closed her eyes, sinking back into the silk pillows. She didn't see the trap. She didn't see the extraction. She only felt the warmth.
