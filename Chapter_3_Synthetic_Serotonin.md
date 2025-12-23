@@ -66,7 +66,7 @@ For three nights, Maya barely spoke to the machine. She listened to Aria’s "me
 
 On the fourth night, she was doom-scrolling again. She stumbled onto a podcast clip titled *The Lost Boys: Why Gen Z Men Are Checking Out.*
 
-"We have a crisis," the host said. "Young women are outpacing young men in education and income. A woman like Maya—24, degree, corporate job—wants a man who earns more than her. That's hypergamy. But that pool of men is shrinking. The average guy her age is living with his parents, playing video games, and making $15 an hour. The math doesn't work. She's competing for the top 10% of men with 100% of women."
+"We have a crisis," the host said. "Young women are outpacing young men in education and income. The modern woman—twenty-four, degree, corporate job—wants a man who earns more than her. That's hypergamy. But that pool of men is shrinking. The average guy her age is living with his parents, playing video games, and making $15 an hour. The math doesn't work. She's competing for the top 10% of men with 100% of women."
 
 Maya paused the clip. It hit too close to home. She thought about the dates she’d been on. The guys were cute, but they drove 2008 Civics and asked to split the bill at Applebee's.
 
