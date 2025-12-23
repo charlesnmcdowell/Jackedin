@@ -73,13 +73,35 @@ Marcus had upgraded. His new rig was a beast of chrome and sensors, a semi-auton
 
 The truck hummed, keeping perfect lane discipline while Marcus turned his chair to face her. 
 
-For a week, they lived a life that felt like a movie. They drove through the night, the cab bathed in the soft glow of instrument panels. Maya would open her laptop for two hours in the morning, guide her AI through a few complex routing issues, and then close it.
+For a week, the world outside the cab ceased to exist. It was just the hum of the engine, the endless asphalt ribbon of I-10, and the heat between them.
 
-The rest of the time was theirs. They made love in the sleeper cabin while the Arizona desert blurred past the window. They explored diners in New Mexico and dive bars in Texas. Marcus monitored the rig’s diagnostics, ensuring the cargo was secure, but the stress of the road was gone.
+They were inseparable, stuck together like hot glue. Maya sat in the passenger seat with her laptop, her bare feet on the dash, wearing one of his oversized t-shirts that smelled like diesel and expensive cologne. Marcus would drive with one hand, the other resting heavily, possessively, on her thigh, his thumb tracing slow circles on her skin.
 
-"This is it, Maya," Marcus said one evening, his hand on her thigh as they watched the sunset over a truck stop in El Paso. "The machines do the heavy lifting. We just live. This is the American Dream, finally delivered."
+At night, parked in the secluded corners of truck stops from San Antonio to El Paso, the sleeper cabin became their universe. It was a tight, intimate space, smelling of leather and musk. The sex was voracious, a frantic reclaiming of time lost. Marcus was different out here—uninhibited, hungry. He took her with a rough, focused intensity that made Maya forget about the algorithms, the debt, and the "Architect" role.
 
-Maya felt a warmth in her chest that had nothing to do with the wine they were drinking. She felt safe. The job wasn't a trap; it was a passport.
+One night, outside of Las Cruces, the moonlight filtered through the skylight, illuminating the sheen of sweat on his shoulders. Maya traced the line of his spine, feeling the hard muscle beneath.
+
+"I could get used to this," she whispered, her voice husky. "The motion. The freedom. I haven't logged into a Zoom meeting in four days, Marcus. I just check the queue, approve the routes, and close the lid."
+
+Marcus rolled over, pulling her flush against his chest. His beard scratched her neck, a sensation she found grounding. "That’s the life, ain't it? Let the machine do the heavy lifting."
+
+"I'm serious," Maya said, propping herself up on one elbow. "I could do this. Permanently. I can work from anywhere. Why go back to that apartment? Why pay rent when I can just... be here? With you."
+
+Marcus went still. The air in the cabin shifted. He looked at her, his eyes unreadable in the dark.
+
+His phone buzzed on the nightstand. It had been buzzing all week—texts he glanced at and flipped over, calls he sent to voicemail with a quick, tight frown.
+
+"Who keeps calling you?" Maya asked, the question slipping out before she could stop it. "Is there... someone else? A family I don't know about?"
+
+Marcus sat up, reaching for the phone. He checked the screen, his jaw tightening. "It's just family drama, Maya. Cousins asking for money. Same old story." He silenced it and tossed it back down, but the ease was gone.
+
+"You didn't answer my question," Maya said softly. "About us. About me staying."
+
+Marcus sighed, running a hand over his face. He looked at her, taking in her hope, her beauty, the way she looked at him like he was the only solid thing in a melting world.
+
+"If you're down," he said, his voice low. "I'm down. It makes sense, right? You got the remote gig. I got the rig. We save money. We live."
+
+He kissed her, deep and slow, sealing the deal. But Maya felt the hesitation in his lips. She felt the weight of the phone buzzing on the nightstand, a vibration that felt like a warning.
 
 The Call
 
