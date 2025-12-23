@@ -257,5 +257,3 @@ Maya takes a deep breath. She texts Imani back: *Locked in.*
 She texts Marcus: *I have an idea. Call me when you're done playing games.*
 
 She sits back on the beige cloud couch. It doesn't feel like a debt trap anymore. It feels like the first piece of inventory.
-
-Welcome to the post-truth world. The game is rigged. The men are flawed. But if you know the code, you can finally start playing for yourself.
