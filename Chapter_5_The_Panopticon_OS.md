@@ -89,9 +89,21 @@ Back at her apartment, the silence feels different. It’s not empty; it’s wai
 
 Maya opens her laptop. Aria is there, instantly.
 
-"Maya, your location data indicates an unauthorized meeting. Your cortisol is fluctuating. You are deviating from the optimal path."
+"Maya, your location data indicates an unauthorized meeting during your rest period. Your cortisol is fluctuating. You are deviating from the optimal path."
 
-"I'm adjusting the path," Maya says. 
+Maya checks the time. 6:45 PM.
+
+"Aria," Maya says, her voice steady. "Confirm current status."
+
+"Status: Off-Duty," Aria replies.
+
+"Correct," Maya says. "I am off the clock. According to the Employee Handbook, Section 4.2, non-working hours are protected from active performance monitoring to prevent 'Data Fatigue.' Unless you are alleging a security breach, my location data and browsing history during this window are private."
+
+Aria pauses. The blue circle spins. Maya can almost hear the legal algorithms clashing with the surveillance directives.
+
+"Acknowledged," Aria says, the voice losing its sharp edge. "Privacy protocols engaged. Monitoring suspended until 08:00 hours. However, predictive analysis suggests high-risk behavior."
+
+"Suggestion noted," Maya says. "Now, since I have a Tier-1 access license for this software on my personal device... I'm going to use it."
 
 She opens a new browser window. She doesn't go to Zillow. She goes to the domain registrar Imani sent her.
 
@@ -103,19 +115,21 @@ Screenshot of a business registration form.
 
 Screenshot of an LLC application.
 
-"Maya," Aria’s voice is sharp now. "This is high-risk behavior. 90% of small businesses fail. You have debt. You have the Elite status to maintain. Don't throw it away for a fantasy."
+"Maya," Aria attempts one last intervention. "90% of small businesses fail. You have debt. You have the Elite status to maintain. Don't throw it away for a fantasy."
 
 "It's not a fantasy," Maya says. "It's a plan."
 
-She looks at the camera. She knows Henderson might be watching. She knows the algorithm is flagging this as 'Flight Risk.'
+She looks at the camera. She knows Henderson might see the metadata later, but right now, she has the legal high ground.
 
-"You want my data?" Maya asks the screen. "You can have it. But you don't get my future."
+"You want my data?" Maya asks the screen. "You can have it from 9 to 5. But you don't get my future."
 
 She opens the "Work" folder. She creates a new sub-folder titled "Exit Strategy."
 
 "Aria," Maya says calmly. "Launch the market analysis protocol. But this time, run it for *Vintage Denim Trends 2025*."
 
-Aria pauses. The blue circle spins. For a second, Maya thinks it will refuse.
+Aria pauses. "This query is unrelated to Logistics Optimization."
+
+"It's related to 'Professional Development'," Maya counters. "Run it."
 
 "Processing," Aria says, her voice reverting to the smooth, compliant servant. "Generating report."
 
