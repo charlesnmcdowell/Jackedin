@@ -66,13 +66,17 @@ For three nights, Maya barely spoke to the machine. She listened to Aria’s "me
 
 On the fourth night, she was doom-scrolling again. She stumbled onto a clip from *The Table*, a podcast where men and women argued about dating. It was trending.
 
-"The bar is on the floor!" a female host shouted. "Women are getting degrees, buying homes, and starting businesses. We just want a man who can meet us at our level. Emotional intelligence. Financial stability. Why is that asking too much? Men need to step up."
+The set looked like a VIP section in a Miami club. On one side sat four women, a diverse, stunning lineup that looked less like a debate panel and more like a high-end OnlyFans promo. There was a blonde in a latex corset that pushed her cleavage up to her chin, a Black woman with waist-length locs and a diamond choker, a Latina in a sheer mesh top that left little to the imagination, and an Asian woman with a sleeve of tattoos and dangerous eyes. They were polished, gleaming under the studio lights, their skin oiled and perfect.
 
-"Step up to what?" the male guest interrupted. He was wearing sunglasses indoors and speaking into a Shure SM7B mic. "You want a man who makes six figures, is six feet tall, and listens to your feelings for three hours. That guy exists. He's the top 1%. But guess what? He has options. He has an abundance of women throwing themselves at him. Why would he settle down with you when he can have a different girl every week?"
+Across from them sat the men. The shorter one leaned back in a leather chair, swirling a glass of amber whiskey and puffing on a thick cigar, looking like a mob boss in a Balenciaga hoodie. Next to him was a taller man, fit and sharp, his biceps straining against a designer t-shirt, gold chains glinting at his neck. He had the easy, arrogant grin of a man who knew his net worth was the only argument he needed.
 
-"Because that's toxic!" the woman yelled.
+"The bar is on the floor!" the Black woman shouted, her long acrylics clicking against the table. "Women are getting degrees, buying homes, and starting businesses. We just want a man who can meet us at our level. Emotional intelligence. Financial stability. Why is that asking too much? Men need to step up."
 
-"It's biology," the man smirked. "And as for the other 90% of men? The guys working at Starbucks? They’re opting out. The juice isn't worth the squeeze. They’d rather play Call of Duty and pay for OnlyFans than work eighty hours a week to buy a ring for a woman who resents them for not being rich enough. Until men stop simping, this is the market. Alphas get the harem, betas get the bill."
+"Step up to what?" the tall man interrupted, leaning into his Shure SM7B mic. "You want a man who makes six figures, is six feet tall, and listens to your feelings for three hours. That guy exists. He's the top 1%. But guess what? He has options. He has an abundance of women throwing themselves at him. Why would he settle down with you when he can have a different girl every week?"
+
+"Because that's toxic!" the blonde yelled.
+
+"It's biology," the short man smirked, blowing a cloud of smoke. "And as for the other 90% of men? The guys working at Starbucks? They’re opting out. The juice isn't worth the squeeze. They’d rather play Call of Duty and pay for OnlyFans than work eighty hours a week to buy a ring for a woman who resents them for not being rich enough. Until men stop simping, this is the market. Alphas get the harem, betas get the bill."
 
 Maya paused the clip. The heat in her chest wasn't rage; it was recognition.
 
