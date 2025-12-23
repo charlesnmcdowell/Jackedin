@@ -32,7 +32,7 @@ Marcus is forty-two. Marcus is six-foot-two. Marcus is two hundred and twenty po
 
 He’s sitting in a booth at a Flying J, watching his coworker, Slim, swipe through his phone like he’s playing a slot machine. Slim is fifty, with a gut that hangs over his belt and a wife who hasn't looked at him in a decade.
 
-"Look at this one, Marc," Slim says, shoving the phone in his face. "Knoxville. Twenty-five. Says she loves 'experienced' men. I got her lined up for Tuesday."
+"Forget Hinge, Marc," Slim says, shoving the phone in his face. "You need BLK. It’s curated. No more guessing. Look at this one in Memphis. Says she loves 'experienced' men. I got her lined up for Tuesday."
 
 Marcus looks at the screen. The woman is a high-definition dream. Perfect skin, perfect hair, teeth that look like they cost more than Marcus’s first truck.
 
@@ -42,13 +42,27 @@ Marcus looks at the screen. The woman is a high-definition dream. Perfect skin, 
 
 Marcus installs the app. Reluctantly. He uploads a photo of himself in a tight black tee, his biceps straining against the sleeves, his beard groomed to a razor edge. He looks like a king among peasants. He knows he is a "hot physical specimen." He knows how to put on the outfit that accentuates the tone and the endowment. He knows the smooth words and the charming manner.
 
+He makes his first swipe. Right.
+
+A match instantly.
+
+He swipes again. Right. Match.
+
+Again. Match.
+
+It feels… easy. Too easy. It feels like pulling the lever on a slot machine that’s rigged to pay out. The dopamine hit is instant. He feels a rush of validation, a digital high that competes with the adrenaline of the road.
+
+For the next hundred miles, he drives with one hand on the wheel and one hand on the phone. Swipe. Swipe. Swipe. He’s lining up options like he lines up cargo. A teacher in Knoxville. A nurse in Chattanooga. An "Influencer" in Atlanta.
+
 The hits come instantly. A notification for every mile he drives.
 
-First was a woman in Knoxville. "I love a man who knows how to handle a big machine," she messaged. Her photo showed a petite blonde in a sundress. 
+But the reality hits back.
+
+First was the teacher in Knoxville. "I love a man who knows how to handle a big machine," she messaged. Her photo showed a petite woman in a sundress. 
 
 Marcus met her at a diner near the exit. She was a hundred pounds heavier than her photo. She smelled like stale cigarettes and a deep, quiet desperation. She talked about her "career in influencer marketing," which turned out to be selling weight-loss tea to five hundred bots. Marcus paid for her coffee and left before the second cup.
 
-Next was a "Latina Queen" in Atlanta. Marcus showed up at the hotel bar, his skin smelling of expensive cologne and the faint, underlying scent of diesel. The woman who met him wasn't even the person in the profile. She was a different person entirely, using a cousin's photos to harvest a free dinner and a night in a room he’d already paid for.
+Next was the "Influencer" in Atlanta. Marcus showed up at the hotel bar, his skin smelling of expensive cologne and the faint, underlying scent of diesel. The woman who met him wasn't even the person in the profile. She was a different person entirely, using a cousin's photos to harvest a free dinner and a night in a room he’d already paid for.
 
 Marcus didn't complain. He was a bull. He was there for the physical. He took what was offered, gave them the "nine-inch treatment" until they were screaming his name and clawing at his back, and then he was under the shower, watching the water run gray. He was back on the road before the sun came up, listening to them call home to tell their men they were "running late from work" and that they "loved them."
 
