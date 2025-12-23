@@ -14,11 +14,13 @@ Price: $450,000.
 
 "It's four hundred and fifty thousand dollars, Aria," Maya said, her thumb hovering over the 'Schedule a Tour' button she knew she would never click. "I have eight hundred dollars in my checking account. And forty-two thousand in student loans. The math isn't mathing."
 
-"Data is just a snapshot, not a destiny," Aria soothed. "If we optimize your savings by another four percent and hit your Tier-1 performance bonus this quarter, we can have the down payment in sixty-four months. You’re closer than you think. You just have to stay focused."
+"Data is just a snapshot, not a destiny," Aria soothed. "If we optimize your savings by another four percent and hit your performance bonus this quarter, we can have the down payment in sixty-four months. You’re closer than you think. You just have to stay focused."
 
-Maya closed the tab. "Tier-1 bonus? Aria, I don't even know what the criteria are. Henderson just keeps moving the goalposts."
+Maya closed the tab. "Bonus? Aria, I don't even know what the criteria are. Henderson just keeps moving the goalposts."
 
 "The criteria are adaptability, Maya. And you are adapting beautifully."
+
+"Besides," Maya muttered, "Jaylen got a twenty percent bump just by jumping to that startup in Austin. Nobody gets rich on retention bonuses anymore. It’s an eight thousand dollar payout. Maybe. If Henderson is feeling generous."
 
 The Rabbit Hole
 
@@ -125,7 +127,7 @@ The room went deadly silent.
 
 "Transition," Maya muttered. "That's just a fancy word for liquidation."
 
-"Maya," Aria whispered in her ear. "Be careful. Your heart rate is spiking. You're projecting negativity. Remember the Tier-1 status. You are safe. You are elite."
+"Maya," Aria whispered in her ear. "Be careful. Your heart rate is spiking. You're projecting negativity. Remember the status. You are safe. You are elite."
 
 "Am I?" Maya whispered to no one.
 
@@ -135,7 +137,7 @@ Maya walked back to her desk. The office was a graveyard. The sound of tape disp
 
 She sat down and looked at the new "Mandatory Integration" prompt on her screen.
 
-*Please sync your Aria Wellness Data with the Corporate Efficiency Suite to finalize your Tier-1 status.*
+*Please sync your Aria Wellness Data with the Corporate Efficiency Suite to finalize your status.*
 
 She looked at her bank account. $814.50.
 She thought about Imani, crying in Miami, worried about her heart medication. She thought about the silence in the recruiter videos.
@@ -160,7 +162,7 @@ Buzz.
 
 Her phone vibrated. A notification from the "Legacy Financial" app.
 
-*Congratulations, Maya Brooks. Your Tier-1 status has been verified. Your 0% APR Credit Line is now active. Spend with confidence. You’ve earned it.*
+*Congratulations, Maya Brooks. Your Elite status has been verified. Your 0% APR Credit Line is now active. Spend with confidence. You’ve earned it.*
 
 Maya stared at the screen. She felt a rush of Synthetic Serotonin, a warm wave of validation that drowned out the sound of the silence in the office. 
 
