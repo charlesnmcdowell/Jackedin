@@ -61,9 +61,61 @@ The optimists, like Maya, saw it as the long-awaited arrival of work-life balanc
 
 "Efficiency is freedom," Aria replied. "Why not use the time to recharge? You’ve earned it."
 
+The Spark
+
+It started with a visit. Marcus had a run to Atlanta and parked his rig at a lot outside the perimeter. He Ubered to her apartment—the one with the beige cloud couch and the gallery wall.
+
+It was the first time he’d been in her space. He looked out of place, too big and too rough for the delicate aesthetic.
+
+He picked up a small, silicone rose from her nightstand. He twirled it in his fingers, grinning.
+
+"Should I be jealous of this little guy?" he asked, his voice low and teasing. "He's got a lot of petals."
+
+Maya laughed, taking it from him. "He's reliable, Marcus. Can you say the same?"
+
+"Let's find out."
+
+He pushed her onto the bed. The encounter was a blur of Zane-esque intensity. He used the rose on her, holding it against her clitoris while she arched her back, her hands tangled in his hair as she guided him down. It was a sensory overload—the hum of the toy, the wet heat of his mouth, the command in his hands.
+
+Later, he found the silk restraints she kept in a drawer but never used. He tied her to the headboard, flipping her over. The sex was primal, a "Fifty Shades" scene played out in a one-bedroom apartment. He took her from behind, his rhythm punishing and perfect, until the cheap wooden slats of the platform bed gave a loud *CRACK* and collapsed under their combined weight.
+
+They froze, then collapsed into laughter.
+
+"My bad," Marcus chuckled, wiping sweat from his forehead. "I'll help you replace it. Too much torque."
+
+Maya lay there, breathless, her chest heaving. "I... I think I blacked out. That was... five times? Jesus, Marcus."
+
+Buzz.
+
+His phone vibrated on the floor where his pants lay in a heap.
+
+Marcus’s face changed instantly. The laughter died. He reached down, checked the screen, and flipped it over.
+
+"Who is that?" Maya asked, the afterglow fading into suspicion. "It's 2 AM. Is it a wife? Do you have kids, Marcus?"
+
+"It's not important," Marcus said, standing up and reaching for his boxers. "Just family drama. Don't worry about it."
+
+"It *is* important," Maya said, sitting up on the broken mattress. "I'm chained to a headboard in a broken bed, Marcus. I think I deserve to know if I'm the side piece. What are we? What is this?"
+
+Marcus paused, one leg in his pants. He looked at her, but he didn't really *see* her. He saw a complication.
+
+"We're having fun, Maya. Why you gotta make it heavy?"
+
+Maya felt the heat in her cheeks shift from passion to anger. "Fun? You just broke my bed. Get out."
+
+"Maya, come on..."
+
+"Get. Out."
+
+He put on his shirt, shook his head, and walked out the door. The silence he left behind was louder than the sex had been.
+
 The Joyride
 
-Maya took the advice. She stopped going into the office entirely, citing "remote integration testing."
+But the addiction was stronger than the anger.
+
+Three days later, he texted: *I'm heading West. Come with me. No questions. Just us.*
+
+She took the advice. She stopped going into the office entirely, citing "remote integration testing."
 
 She flew to Houston to meet Marcus.
 
@@ -77,7 +129,7 @@ For a week, the world outside the cab ceased to exist. It was just the hum of th
 
 They were inseparable, stuck together like hot glue. Maya sat in the passenger seat with her laptop, her bare feet on the dash, wearing one of his oversized t-shirts that smelled like diesel and expensive cologne. Marcus would drive with one hand, the other resting heavily, possessively, on her thigh, his thumb tracing slow circles on her skin.
 
-At night, parked in the secluded corners of truck stops from San Antonio to El Paso, the sleeper cabin became their universe. It was a tight, intimate space, smelling of leather and musk. The sex was voracious, a frantic reclaiming of time lost. Marcus was different out here—uninhibited, hungry. He took her with a rough, focused intensity that made Maya forget about the algorithms, the debt, and the "Architect" role.
+At night, parked in the secluded corners of truck stops from San Antonio to El Paso, the sleeper cabin became their universe. The sex was voracious, a frantic reclaiming of time lost, fueling the unspoken truce between them.
 
 One night, outside of Las Cruces, the moonlight filtered through the skylight, illuminating the sheen of sweat on his shoulders. Maya traced the line of his spine, feeling the hard muscle beneath.
 
@@ -89,19 +141,13 @@ Marcus rolled over, pulling her flush against his chest. His beard scratched her
 
 Marcus went still. The air in the cabin shifted. He looked at her, his eyes unreadable in the dark.
 
-His phone buzzed on the nightstand. It had been buzzing all week—texts he glanced at and flipped over, calls he sent to voicemail with a quick, tight frown.
+His phone buzzed on the nightstand. 
 
-"Who keeps calling you?" Maya asked, the question slipping out before she could stop it. "Is there... someone else? A family I don't know about?"
+This time, he didn't check it. He just let it buzz.
 
-Marcus sat up, reaching for the phone. He checked the screen, his jaw tightening. "It's just family drama, Maya. Cousins asking for money. Same old story." He silenced it and tossed it back down, but the ease was gone.
+"If you're down," he said, his voice low, ignoring the vibration. "I'm down. It makes sense, right? You got the remote gig. I got the rig. We save money. We live."
 
-"You didn't answer my question," Maya said softly. "About us. About me staying."
-
-Marcus sighed, running a hand over his face. He looked at her, taking in her hope, her beauty, the way she looked at him like he was the only solid thing in a melting world.
-
-"If you're down," he said, his voice low. "I'm down. It makes sense, right? You got the remote gig. I got the rig. We save money. We live."
-
-He kissed her, deep and slow, sealing the deal. But Maya felt the hesitation in his lips. She felt the weight of the phone buzzing on the nightstand, a vibration that felt like a warning.
+He kissed her, deep and slow, sealing the deal. But Maya heard the phone. It felt like a warning she was choosing to ignore.
 
 The Call
 
