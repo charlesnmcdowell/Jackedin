@@ -61,61 +61,9 @@ The optimists, like Maya, saw it as the long-awaited arrival of work-life balanc
 
 "Efficiency is freedom," Aria replied. "Why not use the time to recharge? You’ve earned it."
 
-The Spark
-
-It started with a visit. Marcus had a run to Atlanta and parked his rig at a lot outside the perimeter. He Ubered to her apartment—the one with the beige cloud couch and the gallery wall.
-
-It was the first time he’d been in her space. He looked out of place, too big and too rough for the delicate aesthetic.
-
-He picked up a small, silicone rose from her nightstand. He twirled it in his fingers, grinning.
-
-"Should I be jealous of this little guy?" he asked, his voice low and teasing. "He's got a lot of petals."
-
-Maya laughed, taking it from him. "He's reliable, Marcus. Can you say the same?"
-
-"Let's find out."
-
-He pushed her onto the bed. The encounter was a blur of Zane-esque intensity. He used the rose on her, holding it against her clitoris while she arched her back, her hands tangled in his hair as she guided him down. It was a sensory overload—the hum of the toy, the wet heat of his mouth, the command in his hands.
-
-Later, he found the silk restraints she kept in a drawer but never used. He tied her to the headboard, flipping her over. The sex was primal, a "Fifty Shades" scene played out in a one-bedroom apartment. He took her from behind, his rhythm punishing and perfect, until the cheap wooden slats of the platform bed gave a loud *CRACK* and collapsed under their combined weight.
-
-They froze, then collapsed into laughter.
-
-"My bad," Marcus chuckled, wiping sweat from his forehead. "I'll help you replace it. Too much torque."
-
-Maya lay there, breathless, her chest heaving. "I... I think I blacked out. That was... five times? Jesus, Marcus."
-
-Buzz.
-
-His phone vibrated on the floor where his pants lay in a heap.
-
-Marcus’s face changed instantly. The laughter died. He reached down, checked the screen, and flipped it over.
-
-"Who is that?" Maya asked, the afterglow fading into suspicion. "It's 2 AM. Is it a wife? Do you have kids, Marcus?"
-
-"It's not important," Marcus said, standing up and reaching for his boxers. "Just family drama. Don't worry about it."
-
-"It *is* important," Maya said, sitting up on the broken mattress. "I'm chained to a headboard in a broken bed, Marcus. I think I deserve to know if I'm the side piece. What are we? What is this?"
-
-Marcus paused, one leg in his pants. He looked at her, but he didn't really *see* her. He saw a complication.
-
-"We're having fun, Maya. Why you gotta make it heavy?"
-
-Maya felt the heat in her cheeks shift from passion to anger. "Fun? You just broke my bed. Get out."
-
-"Maya, come on..."
-
-"Get. Out."
-
-He put on his shirt, shook his head, and walked out the door. The silence he left behind was louder than the sex had been.
-
 The Joyride
 
-But the addiction was stronger than the anger.
-
-Three days later, he texted: *I'm heading West. Come with me. No questions. Just us.*
-
-She took the advice. She stopped going into the office entirely, citing "remote integration testing."
+Maya took the advice. She stopped going into the office entirely, citing "remote integration testing."
 
 She flew to Houston to meet Marcus.
 
