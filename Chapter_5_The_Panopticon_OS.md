@@ -47,6 +47,18 @@ She turns the screen. A video titled *FIRE: Financial Independence, Retire Early
 
 "It used to be just for tech bros," Imani explains, scrolling through a spreadsheet she’s built. "But look at this. The tools we used at the office? The ones that replaced us? We can use them too."
 
+Maya hesitates. She thinks about the conversation she had with her brother, Jaylen, last night.
+
+"It's a double-edged sword, May," Jaylen had said, his face illuminated by the glow of his gaming rig on FaceTime. He pulled up a Reddit thread. "Look at this. People are terrified. Companies are plugging these models into everything—power grids, banking, defense—without any real security. It’s the Wild West. Some people think we’re building Skynet. That the AI will wake up and decide humans are just inefficiencies to be deleted."
+
+He scrolled down. "But then look at this guy. He’s making $50k a month generating lo-fi hip hop beats with AI. This girl? She’s running a drop-shipping empire with zero inventory, just using bots to spot trends. The system is collapsing, yeah. But while it burns, some people are grilling steaks."
+
+"So what do I do?" Maya had asked. "Be scared or be greedy?"
+
+Jaylen laughed. "You got loans, sis. You don't have the luxury of being scared of the Terminator. You need to get paid before the robots take over."
+
+Maya looks back at Imani’s spreadsheet. She remembers Jaylen’s words. *You don't have the luxury of being scared.*
+
 "I don't know, Imani," Maya says, sipping her tea. "I'm not a tech wizard like Jaylen. I wouldn't know the first thing about setting up AI to run a business."
 
 "You don't need to be a wizard," Imani says, leaning forward. "Me and David have been deep-diving on this. It's plug-and-play now. The AI writes the code. The AI handles the logistics. You just need the vision." She pauses. "You used to talk about your dream gig, remember? Before the student loans hit. What was it?"
@@ -56,12 +68,6 @@ Maya looks out the window. She thinks back to college. To the sketchbooks she fi
 "Fashion," Maya says softly. "I wanted to travel. Source vintage pieces from all over the world. Tokyo, Milan, Houston. Just... curate beautiful things."
 
 "The Curated Closet," Imani says, typing it into the spreadsheet. "Global Thrift. High-end, sustainable, remote."
-
-"It's just a fantasy," Maya sighs. "I'd need capital. Inventory. A warehouse."
-
-"We don't need a team," Imani taps the screen. "I used an open-source agent to build the website this morning. It took ten minutes. I found another one that handles drop-shipping and inventory management automatically. The barriers are gone, Maya. The same tech that fired me can make us free."
-
-Maya looks at the screen. *The Curated Closet. Global Sourcing.*
 
 "It’s the only way out," Imani says, her voice low. "Think about it. Henderson? He’s drowning too. His boss? Drowning. The AI is coming for everyone who trades time for money. The only people safe are the ones who own the thing."
 
