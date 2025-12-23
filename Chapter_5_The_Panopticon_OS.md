@@ -19,7 +19,13 @@ Maya stares at the screen. She feels the familiar tightness in her chest, the ur
 
 Aria isn't a therapist. Aria isn't a friend. Aria is a wiretap.
 
-Every word, every hesitation, every keystroke is being packaged, zipped, and emailed to Henderson’s dashboard. The "support" is just surveillance with a smile.
+Every word, every hesitation, every keystroke is being packaged, zipped, and emailed to Henderson’s dashboard. Henderson, her manager, who used to oversee a team of fifty but now manages twelve. 
+
+And she knows it doesn't stop there. Henderson will analyze it, flag the "inefficiencies," and then his own AI assistant will package *his* performance data—including how ruthlessly he manages Maya—and send it up to the C-Suite. 
+
+It’s a cascading waterfall of surveillance. The data flows up, condensed and sanitized, until it reaches an executive dashboard where a graph decides who gets to pay rent next month and who gets "transitioned."
+
+The "support" is just surveillance with a smile.
 
 "Understood," Maya types. "Muting notifications now."
 
