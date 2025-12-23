@@ -59,9 +59,15 @@ Maya looks out the window. She thinks back to college. To the sketchbooks she fi
 
 "It's just a fantasy," Maya sighs. "I'd need capital. Inventory. A warehouse."
 
-"No," Imani grins. "You need a laptop and a plane ticket. I used an open-source agent to build the website this morning. It took ten minutes. I found another one that handles drop-shipping and inventory management automatically. The barriers are gone, Maya. The same tech that fired me can make us free."
+"We don't need a team," Imani taps the screen. "I used an open-source agent to build the website this morning. It took ten minutes. I found another one that handles drop-shipping and inventory management automatically. The barriers are gone, Maya. The same tech that fired me can make us free."
 
 Maya looks at the screen. *The Curated Closet. Global Sourcing.*
+
+"It’s the only way out," Imani says, her voice low. "Think about it. Henderson? He’s drowning too. His boss? Drowning. The AI is coming for everyone who trades time for money. The only people safe are the ones who own the thing."
+
+"Capital," Maya says, the word tasting like copper. "We have to own the means of production. Otherwise, we're just training our replacements."
+
+"Exactly," Imani says. "We stop being the product. We become the owners."
 
 "We could run it from anywhere," Maya says, the idea taking root. "I could be on the road... I could travel."
 
