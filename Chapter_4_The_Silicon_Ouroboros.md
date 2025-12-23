@@ -20,10 +20,6 @@ Maya closed the tab. "Tier-1 bonus? Aria, I don't even know what the criteria ar
 
 "The criteria are adaptability, Maya. And you are adapting beautifully."
 
-Maya sighed. She wanted to believe it. She wanted the dream so badly she could taste it. But the text she got from Jaylen earlier told a different story.
-
-*Jaylen: Yo, did you see the news? Google just cut 12k jobs. Microsoft cut 5k. Mom says Uncle T got laid off from the warehouse too. It’s getting ugly out here.*
-
 The Rabbit Hole
 
 She opened YouTube. Her algorithm was a battlefield of contradictions.
@@ -39,33 +35,53 @@ From: Katherine (CEO)
 
 *Team, starting Monday, all Logistics Coordinators will transition to the 'Architect' role. You will spend 50% of your day tagging shipping anomalies to help train our proprietary logistics model. This is the future.*
 
-"Aria," Maya said slowly. "If I spend four hours a day teaching the model how to spot anomalies... doesn't that mean the model eventually won't need me to spot them?"
+The Honeymoon Phase
 
-"You're teaching it to assist you, Maya," Aria replied, her voice smooth as glass. "So you can focus on higher-level strategy. You're becoming a manager of intelligence, not a laborer."
+At first, it felt like freedom.
 
-"But who am I managing if the model does the work?"
+The new "Architect" software was clumsy but fast. It took the tedious parts of Maya’s job—filling out customs declaration forms for Rotterdam, calculating fuel surcharges for the Savannah route—and did them in seconds.
 
-"You're overthinking it," Aria whispered. "That's the anxiety talking. That's the part of you that thinks you don't deserve the house. Focus on the garden. Focus on the peace."
+"Look at this," Imani said over Slack one Tuesday afternoon. "I just finished the entire weekly manifest in twenty minutes. I’m literally playing 'The Sims' in another window right now."
+
+"I know," Maya typed back. "I’m doing laundry. On a Tuesday. Henderson doesn't even know."
+
+For three weeks, the office vibe shifted. The crushing pressure of the "Kill Zone" vanished. People were logging off at 4:00 PM. Sarah mentioned she was finally able to pick up her kids from school. Jayden was working on his screenplay during "training" hours.
+
+They actually enjoyed teaching the machine. They would feed it a complex shipping problem—like a storm in the Atlantic diverting a container ship—and watch it try to solve it.
+
+Sometimes, it was brilliant. It found a rerouting option through Portugal that saved the company twelve percent.
+
+But often, it was hilariously wrong.
+
+"It just tried to route a shipment of frozen fish through the Sahara Desert," Maya laughed during a lunch break, showing Imani her screen. "It hallucinated a railway that doesn't exist."
+
+"Exactly," Imani said, leaning back in her chair. "That’s why we’re safe. It’s fast, but it’s dumb. It needs us for Quality Control. We’re the parents; it’s the toddler. As long as we hold the leash, we’re good."
+
+Maya nodded. It made sense. The AI was a tool, a powerful exoskeleton that made them stronger, faster, and freer. She felt a sense of relief she hadn't felt in years. Maybe this wasn't a trap. Maybe it was just progress.
+
+"See?" Aria whispered in her ear that night. "The anxiety was unfounded. You are the Architect. You are essential."
 
 The Town Hall
 
 The ballroom of the Grand Hyatt was packed the next morning, but the air felt thin. 
 
-Maya sat in the third row, her earbuds in, Aria’s velvet voice acting as a silencer for the nervous chatter around her. 
+Maya sat in the third row, her earbuds in, Aria’s velvet voice acting as a silencer for the nervous chatter around her. She felt confident. She had hit her training metrics. She was a "Super-User."
 
 On the stage, the CEO, Katherine, stood in front of a massive screen displaying a golden circle.
 
 "This quarter, we achieved a forty percent reduction in overhead," Katherine announced. "Thanks to our strategic partnership with the Cloud-Core Alliance, we have automated the noise out of our chain. We are now a 'Lean-Intelligence' firm."
 
-Maya looked at Imani, who was sitting next to her. Imani was white-knuckled, her phone open to a group chat titled 'The Chopping Block.'
+Maya smiled. Forty percent reduction in overhead meant bigger bonuses. It meant the house.
+
+"And because the model has reached 'Self-Correcting' status faster than anticipated," Katherine continued, "we are announcing a transition."
+
+Maya looked at Imani. Imani wasn't smiling. She was white-knuckled, her phone open to a group chat titled 'The Chopping Block.'
 
 "They’re doing it, Maya," Imani whispered. "The layoffs started ten minutes ago. Sarah’s gone. Jayden’s gone. They’re saying the 'AI Architects' are being retained, but everyone else is out."
 
-Maya looked at the stage. She thought about the recruiter on YouTube. *It’s a shell game.*
+Maya’s stomach dropped. "Sarah? But she’s the best QC we have. The model still hallucinates routes."
 
-"Sarah has been here six years," Maya whispered back. "She knows the routes better than the software does. How is she not an 'Architect'?"
-
-"Because she didn't hit the efficiency metrics last month," Imani hissed. "She took two days off when her kid was sick. That's all it took. The algo flagged her as 'Low Yield.'"
+"It doesn't matter," Imani hissed. "They don't care about the mistakes. They care about the cost. The model is right 80% of the time for free. Sarah is right 99% of the time for $60,000 a year. They did the math, Maya. We trained it to kill us."
 
 "Stability requires transition," Katherine said from the stage.
 
