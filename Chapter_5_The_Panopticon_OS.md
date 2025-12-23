@@ -134,7 +134,7 @@ She opens the banking app.
 
 "Confirm," Maya says.
 
-The money moves. The snake sheds its skin.
+The money moves. It's her first down payment on freedom.
 
 The Grind
 
