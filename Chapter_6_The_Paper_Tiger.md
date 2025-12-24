@@ -24,7 +24,7 @@ Marcus hung up, his head spinning. He finished his run, dropped his trailer at t
 
 Junior’s condo was a glass-and-steel cube that looked like it belonged in a sci-fi movie. Inside, the air smelled of expensive cologne and ozone. Marcus sat on a couch that cost more than his first three trucks, watching Junior play a football game on a screen that took up half the wall.
 
-"Watch this, Pop," Junior said, his eyes fixed on the screen. He wasn't even playing a game; he was in a menu. He clicked a button, and a digital box exploded into a shower of gold light and confetti. "Come on, come on... damn. Another bronze pack."
+"Watch this, Pop," Junior said, his eyes fixed on the screen. He wasn't even playing a game; he was in a menu. He clicked a button, and a digital box exploded into a shower of gold light and confetti. "Let's go... come on, skibidi toilet luck... damn. Another bronze pack."
 
 "What did you just do?" Marcus asked.
 
@@ -34,9 +34,9 @@ Marcus watched as Junior clicked again. Another fifty dollars vanished into the 
 
 "You just spent a hundred and fifty dollars in three minutes," Marcus said, his voice dropping an octave. "For a picture of a man on a screen?"
 
-"It’s not just a picture, Dad, it’s an asset," Junior said, not looking away. "If I pull the Legendary, I can flip it on the secondary market for two grand. It’s all about the algorithm. Money isn't paper anymore, Pop. It’s just energy moving between servers."
+"It’s not just a picture, Dad, it’s an asset," Junior said, not looking away. "If I pull the Legendary, I can flip it on the secondary market for two grand. It’s all about the algorithm. We’re in a bull run, Pop. You gotta spend to yield. Money isn't paper anymore. It’s just energy moving between servers."
 
-Marcus looked at his son—the kid he’d raised on grease and grit—and felt a cold distance. To Junior, the twenty-thousand in the Peterbilt’s glovebox wasn't security; it was "inefficient energy." 
+Marcus looked at his son—the kid he’d raised on grease and grit—and felt a cold distance. Junior was a hybrid of a tech bro and a gambler, his brain rewired by years of Reddit memes, GameStop rallies, and the dopamine loops of TikTok. To Junior, the twenty-thousand in the Peterbilt’s glovebox wasn't security; it was "inefficient energy." 
 
 He thought about Junior's mother, Trina. She was forty-two, the same age as Marcus, but the years hadn't been as kind to her. She’d grown heavy, her once-sharp features softened by a sedentary life and a resignation that Marcus couldn't relate to. When he dropped by to see Junior, he was always cordial—a polite nod, a brief check-in about the bills—but the fire had gone out of that connection a decade ago. He stayed for the kid, but he lived for the road.
 
