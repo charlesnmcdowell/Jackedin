@@ -154,6 +154,8 @@ Marcus reached for her. He pulled her against him, his hands finding the smooth 
 
 He pressed close against her, his body a solid wall of heat. Maya ran her hand up his muscular chest, feeling the hard muscle beneath the shirt, before sliding it down his pants to feel the heavy bulge waiting for her. Marcus looked down deep into her eyes, holding her gaze as he kissed her—a slow, claiming pressure that made her knees weak. He ran his hands down her back and slipped them into her panties, his fingers finding her clitoris and the entrance to her vagina. She was dry at first, but under his touch, she slowly began to get wet, her breath hitching into a soft moan.
 
+He stepped back, breaking the contact but holding her gaze. Maya’s hands went to his shirt, her fingers fumbling slightly as she undid the buttons. She pushed the charcoal fabric off his shoulders, revealing the broad, scarred expanse of his chest and arms—a landscape of muscle carved by labor. Marcus didn't wait. He stripped off her blazer, then unzipped her dress with a single, fluid motion, letting it pool at her feet. She stood before him in lacy black lingerie that contrasted sharply with her mahogany skin. He kicked off his slacks and boxers, revealing the heavy, thick erection that had been teasing her all night. Maya’s eyes widened, her breath catching as she took in the sheer size of him.
+
 He pushed her onto the bed, his body a weight that she welcomed, but as he moved to enter her, she flinched, her hand pressing against his chest.
 
 "Wait," she whispered, her voice tight. "Slow down. It's... it's been a while."
