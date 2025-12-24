@@ -51,8 +51,13 @@
 *   **Trina:** Baby Mama #1. "The Fit One."
     *   **Role:** The pressure. Demands child support for their son (Junior).
 *   **Junior:** Marcus's Son.
-    *   **Role:** The innocent. Wants tech/toys Marcus can barely afford.
-*   **Keisha:** Baby Mama #2. (To be developed).
+    *   **Role:** The innocent/Tech-savvy. Wants tech/toys Marcus can barely afford.
+*   **Monica:** Baby Mama #2 (Keisha's Mom).
+    *   **Role:** The Past. Sexy 40-year-old, lives in Sugar Land, obsessed with Asian dramas.
+*   **Keisha:** Marcus's Daughter.
+    *   **Role:** The Influencer. 18, making $30k/month, drives a BMW.
+*   **Ray:** Monica’s Husband / Keisha’s Step-dad.
+    *   **Role:** The Hard Worker. Master plumber/electrician, trusts Monica, respects Marcus's visits.
 
 ### The Antagonists
 *   **The Ghost Fleet:** Autonomous trucks (Tesla/Waymo/Aurora).

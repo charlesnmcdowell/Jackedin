@@ -18,5 +18,9 @@ Marcus is a master of the "casual encounter." He isn't looking for a wife. He’
 ## The Maya Connection
 Maya is just another stop on the route, but a favorite one. He doesn't care about her stats degree or her corporate ladder. He cares that she is young, beautiful, and responsive. He knows she wants a "successful" man to buy her a house, and he knows he isn't that man. He doesn't pretend to be. He offers her the back of his cab or a Motel 6 bed, and because of who he is—physically dominant, charming, and skilled—she says yes. He makes her orgasm, he makes her forget her spreadsheets, and then he sends her on her way. It’s simple. It’s honest.
 
-## The Conflict: Aging vs. The Future
-The clock is ticking. His back hurts. His knees pop. He knows he can't be a "workhorse" forever. He looks at his kids—grown now, soft, glued to their screens—and feels no connection to their struggle. They have it easy. His only concern is **Future Marcus**. He needs a retirement plan. He needs to figure out how to navigate this new world of AI trucks and automation not to save the industry, but to save himself.
+## Family & Personal Life
+*   **Junior:** His son. A "nerdy tech kid" who lives in a luxury condo in Pearland. Marcus views Junior's digital gambling and loot boxes as a waste of "real" money, but respects that Junior is finding his own way out of the dirt.
+*   **Monica:** Baby Mama #2. A sexy 40-year-old living in Sugar Land. She’s obsessed with K-dramas and C-dramas. Marcus still maintains a "hot and heavy" secret connection with her when her husband is away.
+*   **Keisha:** His 18-year-old daughter. A high-earning Instagram influencer ($30k/month) who drives a BMW M4. She represents the "Paper Tiger" world—making a fortune through digital appearances while Marcus moves physical goods.
+*   **Ray:** Monica's husband / Keisha's step-dad. A 5'5" master plumber/electrician. A hardworking man who respects Marcus’s visits to Keisha, unaware of the side-action between Marcus and Monica.
+*   **Personal Vehicle:** A black Ford F-150. He uses this for local visits while the Peterbilt handles the interstate cargo.

@@ -20,7 +20,71 @@ Marcus’s own phone buzzed in the cup holder. It was his son, Junior.
 
 "You don't get it, Dad," Junior said, a trace of pity in his voice. "A rubber band is a liability. Inflation is eating your cash while I’m holding the line. I lost twenty on Dogecoin last week, yeah, but I made seventy-five on Bitcoin this morning. We’re taking it back from the suits. It’s just numbers, Pop. Just numbers on a screen."
 
-Marcus hung up, his head spinning. The math was a shell game he couldn't follow—losing twenty to make seventy-five, all while staring at a glowing rectangle. He was glad his nerdy, tech-obsessed son was finally winning, finally finding a way out of the dirt and the grease, but it felt precarious. Like a castle built on a cloud. A ghost eating a ghost.
+Marcus hung up, his head spinning. He decided to see it for himself. He steered the Peterbilt toward Junior’s new zip code in Pearland, the truck feeling like a tank in the manicured suburban streets.
+
+Junior’s condo was a glass-and-steel cube that looked like it belonged in a sci-fi movie. Inside, the air smelled of expensive cologne and ozone. Marcus sat on a couch that cost more than his first three trucks, watching Junior play a football game on a screen that took up half the wall.
+
+"Watch this, Pop," Junior said, his eyes fixed on the screen. He wasn't even playing a game; he was in a menu. He clicked a button, and a digital box exploded into a shower of gold light and confetti. "Come on, come on... damn. Another bronze pack."
+
+"What did you just do?" Marcus asked.
+
+"Loot box," Junior muttered, his thumb already hovering over the 'Buy Again' button. "I’m trying to pull the Legendary Mahomes card. It’s a one-in-a-thousand drop. Each pack is fifty bucks."
+
+Marcus watched as Junior clicked again. Another fifty dollars vanished into the ether. Confetti. Disappointment. Another click. Another fifty.
+
+"You just spent a hundred and fifty dollars in three minutes," Marcus said, his voice dropping an octave. "For a picture of a man on a screen?"
+
+"It’s not just a picture, Dad, it’s an asset," Junior said, not looking away. "If I pull the Legendary, I can flip it on the secondary market for two grand. It’s all about the algorithm. Money isn't paper anymore, Pop. It’s just energy moving between servers."
+
+Marcus looked at his son—the kid he’d raised on grease and grit—and felt a cold distance. To Junior, the twenty-thousand in the Peterbilt’s glovebox wasn't security; it was "inefficient energy." 
+
+The Family Business
+
+A week later, Marcus found himself in a different kind of suburban dream. He pulled his personal Ford truck into a driveway in a quiet, wealthy pocket of Sugar Land. The house was a sprawling three-bedroom ranch, paid off and perfect.
+
+Monica, his second baby mama, was on the porch. She was forty and looked like she hadn't aged a day since twenty-five. She was wearing a tight athletic set that showed off every curve, her hair a cascade of deep red curls. She had a mug of steaming coffee in one hand and her phone in the other, her eyes glued to a Chinese drama playing on the screen.
+
+"Marcus," she said, not looking up. "Keisha’s in the garage. Try not to track mud in."
+
+Marcus walked past her, the scent of her perfume—something expensive and floral—hitting him like a memory. Inside, the house was silent except for the melodic chirping of the TV show. 
+
+He found Keisha, his eighteen-year-old daughter, buffing the hood of a white BMW M4. She looked exactly like her mother, but with an edge of modern polish that felt sharp enough to cut.
+
+"Hey, big head," Keisha said, giving him a quick, one-armed hug. "You like the new whip? Picked it up yesterday."
+
+"How much?" Marcus asked, leaning against the workbench.
+
+"Eighty-five. Cash," Keisha said, her eyes gleaming. "I did a three-post deal with a luxury hair brand. Thirty-five K for a weekend of 'content.' I’m an Instagram model, Dad. I don't just take pictures; I move markets. I’m making thirty a month, easy."
+
+Marcus looked at the car, then at his daughter. She was doing better than he was, and she’d never had grease under her fingernails in her life. 
+
+"Where’s... what’s his name?" Marcus asked.
+
+"Ray? He’s on a job," Keisha said. "Big plumbing contract for a new development. He’s a hard worker, Dad. He trusts Mom to the max. He doesn't care that you visit."
+
+Ray was the step-dad. Five-foot-five, built like a fire hydrant, and smarter than he looked. He was a master plumber and electrician with his own crew. He was the kind of man Marcus respected—blue collar, honest, and completely oblivious.
+
+"I’m gonna go say bye to your mom," Marcus said.
+
+He walked back into the house. Keisha had gone back to her car. Monica was still on the couch, the coffee long gone, her eyes still on the screen. She looked bored. Vulnerable.
+
+Marcus stood behind the couch. He didn't say a word. He just reached down and ran a hand over the slope of her shoulder. She didn't flinch. She just sighed, a long, low sound that told him everything he needed to know.
+
+"Ray won't be back for three hours," she whispered.
+
+Marcus didn't need a second invitation. He’d always been a man who knew how to speak a good game, but with Monica, he didn't need words. He just needed history. He pulled her up, his hands finding the weight of her, the big, firm butt that had always been his weakness. 
+
+He led her to the bedroom, the K-drama still playing in the other room. He didn't do "gentle" with her either. He took her right there, his hands gripping her hips as she rode him, her head thrown back, her moans muffled by the expensive pillows. He grabbed her breasts, his thumbs twisting her nipples as he pounded her sideways, their bodies a tangle of heat and past mistakes. 
+
+He flipped her over, putting her in doggy, his rhythm relentless until she was shaking under him. He felt the crescendo building, a raw, primal surge that he didn't try to stop. He crescendos, splurging on her back, the heat of it a stark contrast to the air-conditioned silence of the house.
+
+Panting, Monica reached for the edge of the bed. She was already coming back to her senses, the "mom" mask sliding back into place. 
+
+"Shower," she muttered, not looking at him. "You need to go, Marcus."
+
+"Yeah," Marcus said, pulling on his jeans. "I'm gone."
+
+He was back in his Ford truck before the shower had even stopped running. He drove away, the suburban perfection of Sugar Land blurring in his mirrors. He felt a strange mix of triumph and disgust. He was the king of his own little world, but the borders were getting smaller every day.
 
 The Buffet
 
