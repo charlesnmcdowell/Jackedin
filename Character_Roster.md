@@ -48,12 +48,12 @@
     *   **Arc:** Realizing his "ownership" is an illusion in the face of autonomous fleets.
 
 ### Family ( The "Secret" Drama)
-*   **Trina:** Baby Mama #1. "The Fit One."
-    *   **Role:** The pressure. Demands child support for their son (Junior).
+*   **Trina:** Baby Mama #1 (Junior's Mom).
+    *   **Role:** The cordial past. 42, same age as Marcus, but has grown overweight and "let herself go." Marcus remains polite for Junior's sake but the spark is dead.
 *   **Junior:** Marcus's Son.
     *   **Role:** The innocent/Tech-savvy. Wants tech/toys Marcus can barely afford.
 *   **Monica:** Baby Mama #2 (Keisha's Mom).
-    *   **Role:** The Past. Sexy 40-year-old, lives in Sugar Land, obsessed with Asian dramas.
+    *   **Role:** The "Spicy" Past. Sexy 40-year-old, lives in Sugar Land, obsessed with Asian dramas.
 *   **Keisha:** Marcus's Daughter.
     *   **Role:** The Influencer. 18, making $30k/month, drives a BMW.
 *   **Ray:** Monica’s Husband / Keisha’s Step-dad.

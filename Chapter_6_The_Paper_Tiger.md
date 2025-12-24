@@ -38,6 +38,8 @@ Marcus watched as Junior clicked again. Another fifty dollars vanished into the 
 
 Marcus looked at his son—the kid he’d raised on grease and grit—and felt a cold distance. To Junior, the twenty-thousand in the Peterbilt’s glovebox wasn't security; it was "inefficient energy." 
 
+He thought about Junior's mother, Trina. She was forty-two, the same age as Marcus, but the years hadn't been as kind to her. She’d grown heavy, her once-sharp features softened by a sedentary life and a resignation that Marcus couldn't relate to. When he dropped by to see Junior, he was always cordial—a polite nod, a brief check-in about the bills—but the fire had gone out of that connection a decade ago. He stayed for the kid, but he lived for the road.
+
 The Family Business
 
 A week later, Marcus found himself in a different kind of suburban dream. He pulled his personal Ford truck into a driveway in a quiet, wealthy pocket of Sugar Land. The house was a sprawling three-bedroom ranch, paid off and perfect.
