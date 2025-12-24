@@ -12,15 +12,15 @@ Outside the rain-streaked window, he watched a kid in a white Tesla parked two s
 
 Marcus’s own phone buzzed in the cup holder. It was his son, Junior.
 
-"Dad, you see the ticker? We’re hitting the moon," Junior said the moment Marcus answered. His voice was breathless, vibrating with the same manic energy as the kid in the Tesla. "I’m up to a hundred and six thousand. I’m thinking about cashing out some of the profit. I want to buy you that new electric rig, the one with the sleeper suite and the massage chair. You shouldn't be breaking your back in that old rattle-trap anymore. It’s not efficient."
+"Dad, you see the ticker? We’re hitting the moon," Junior said the moment Marcus answered. His voice was breathless, vibrating with the same manic energy as the kid in the Tesla. "I’m up to a hundred and six thousand. I’m cashing out twenty. I already put fifteen down on that condo in Pearland—the one with the smart-lock and the floor-to-ceiling glass. And I bought you that new electric rig, the one with the sleeper suite and the massage chair. It’s coming to the yard on Tuesday. You shouldn't be breaking your back in that old rattle-trap anymore. It’s not efficient."
 
 *Efficient.* The word tasted like copper in Marcus's mouth.
 
-"I don't need a massage chair, Junior," Marcus said, his voice a low rumble. "I need you to not lose the principal. That hundred thousand is a ghost until you put it in a rubber band. You hear me?"
+"I don't need a massage chair, Junior," Marcus said, his voice a low rumble, though a small part of him felt a flicker of pride. "I need you to not lose the principal. That hundred thousand is a ghost until you put it in a rubber band. You hear me?"
 
-"You don't get it, Dad," Junior said, a trace of pity in his voice. "A rubber band is a liability. Inflation is eating your cash while I’m holding the line. We’re taking it back from the suits. It’s just numbers, Pop. Just numbers on a screen."
+"You don't get it, Dad," Junior said, a trace of pity in his voice. "A rubber band is a liability. Inflation is eating your cash while I’m holding the line. I lost twenty on Dogecoin last week, yeah, but I made seventy-five on Bitcoin this morning. We’re taking it back from the suits. It’s just numbers, Pop. Just numbers on a screen."
 
-Marcus hung up, feeling a familiar tightness in his chest. Junior lost twenty thousand dollars on Dogecoin two weeks later. The massage chair became a myth. The retirement rig faded back into the ether. A ghost eating a ghost.
+Marcus hung up, his head spinning. The math was a shell game he couldn't follow—losing twenty to make seventy-five, all while staring at a glowing rectangle. He was glad his nerdy, tech-obsessed son was finally winning, finally finding a way out of the dirt and the grease, but it felt precarious. Like a castle built on a cloud. A ghost eating a ghost.
 
 The Buffet
 
@@ -47,7 +47,7 @@ But the reality hit back hard.
 
 The teacher in Knoxville was a hundred pounds heavier than her photo, smelling of stale cigarettes and a deep, quiet desperation. The "Influencer" in Atlanta wasn't even the person in the profile; she was using a cousin's photos to score a free dinner.
 
-Marcus didn't complain. He was a bull. He was there for the physical. He took what was offered, providing the experience they craved—the strength, the stamina, the raw masculinity they couldn't get at home. He left them satisfied, but as he drove away, listening to them call their boyfriends to say they were "running late," he felt a growing cynicism. The whole world felt like a paper tiger. Beautiful from a distance, but made of nothing but thin, flammable lies.
+Marcus didn't complain. He was a bull. He was there for the physical. He took what was offered, providing the experience they craved—the strength, the stamina, the raw masculinity they couldn't get from the "soft" men in their DMs. He left them satisfied, but as he drove away, he felt a growing cynicism. The whole world felt like a paper tiger. Beautiful from a distance, but made of nothing but thin, flammable lies.
 
 The Jackpot
 
@@ -67,11 +67,13 @@ She was better than the photos. She was a physical force. The way she moved, the
 
 He took her up to the room. He didn't ask about her stats. He didn't ask about her career. He just wanted to feel the weight of her.
 
-He pulled her against him, his rough hands finding the smooth obsidian of her skin. He felt the heat of her, the real, physical heat that no app could simulate. She smelled like vanilla and intelligence. 
+He pulled her against him, his rough, grease-stained hands finding the smooth obsidian of her skin. He felt the heat of her, the real, physical heat that no app could simulate. She smelled like vanilla and intelligence. 
 
-He pushed her onto the bed, his body a weight that she welcomed. He showed her what twenty years of hard labor felt like when it was directed at pleasure. He made her forget the data. He made her forget the spreadsheets. He pounded her until the room blurred, until the only thing in the universe was the friction between their bodies and the sound of her gasping for air.
+Marcus didn't do "gentle" well. He was a man of torque and tension. He lifted her off her feet, her legs wrapping around his waist as he pinned her against the Marriott’s beige wallpaper. He could feel her heart racing against his chest, a frantic, human drumbeat. He buried his face in the crook of her neck, his beard rough against her skin, and for a moment, the road, the Peterbilt, and the $20,000 in rubber bands didn't exist.
 
-He made her scream. He made her come until she couldn't remember her own name.
+He pushed her onto the bed, his body a weight that she welcomed with a low, desperate sound. He showed her what twenty years of hard labor felt like when it was channeled into a single purpose. He was methodical, his calloused thumbs tracing the curve of her jaw, his mouth demanding and sure. He made her forget the data. He made her forget the spreadsheets. 
+
+He took her from behind, his large hands gripping her hips, anchoring her to the present. Every deep, rhythmic stroke was a reminder of what was real. He watched the way her muscles tensed, the way her back arched, until the room blurred and she was screaming his name into the pillows, her body shivering under the raw force of him. He stayed in her until the last of the tremors faded, his breath hot against her ear.
 
 The Billboard
 
