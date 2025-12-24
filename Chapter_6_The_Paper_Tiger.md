@@ -96,20 +96,23 @@ The Buffet
 
 Marcus leaned back in the booth at the Flying J, watching his coworker, Slim, swipe through his phone with the focus of a bomb disposal technician. Slim was fifty, with a gut that hung over his belt and a marriage that had been dead for a decade.
 
-"Forget Hinge, Marc," Slim said, shoving the phone in Marcus’s face. "You need BLK. It’s curated. No more guessing. Look at this one in Memphis. Says she loves 'experienced' men. I got her lined up for Tuesday."
+"Forget Hinge, Marc," Slim said, shoving the phone in Marcus’s face. "You need BLK. It’s like a digital menu. Look at this one in Memphis. Says she loves 'experienced' men. I got her lined up for Tuesday."
 
-Marcus glanced at the screen. The woman was stunning—a high-definition dream with perfect skin and a smile that looked expensive.
+Marcus looked at the glowing rectangle with a mix of suspicion and genuine wonder. He was a man who still bought paper maps for the back-roads. "You mean all these women are just... sitting there? In the phone? Like they're waiting for a call?"
 
-"How do you know she's real?" Marcus asked.
-
-"Who cares?" Slim laughed, his eyes glued to the screen. "The bars are empty, man. Everybody’s at home doing this. If you want to get laid in this new world, you gotta go where the eyes are."
+"Better," Slim laughed, his eyes glued to the screen. "They're waiting for a swipe. Swipe right if you like 'em, left if you don't. It's like a buffet that never closes, man. Everybody’s at home doing this now. If you want to get laid in this new world, you gotta go where the eyes are."
 
 Reluctantly, Marcus installed the app. He uploaded a photo of himself in a tight black tee, one that accentuated the results of twenty years of heavy lifting. He kept his beard groomed to a razor edge. He knew what he was. He was a relic, but he was a well-preserved one. A king among peasants who spent their lives in chairs.
 
-He swiped right. A match instantly.
-He swiped again. Match.
+At first, the profiles were a blur of average faces—women he’d see at a gas station or a diner. He swiped right on a few, thinking of it as a polite nod. "Okay, she seems nice," he muttered. "Her too."
 
-It felt... easy. Dangerously easy. It was like pulling the lever on a slot machine that was rigged to pay out. The dopamine hit was instant, a rush of digital validation that competed with the adrenaline of the road.
+But as he sat in the booth, the app seemed to be... learning. The women started getting younger. Their skin started looking smoother. The "average" faces disappeared, replaced by a steady stream of mahogany-skinned queens with hourglass figures and smiles that looked like they belonged on billboards. 
+
+"Damn," Marcus whispered, his thumb moving with a new urgency. "Look at this one. And this one. Slim, are all these girls really in Memphis? It's like they're getting better the more I look."
+
+"The jackpot," Slim grinned, not looking up. "The app knows what you want before you do, Marc. Just keep swiping."
+
+It felt... easy. Dangerously easy. Marcus didn't suspect the filters, the bots, or the professional cat-fishers lurking behind the pixels. To him, it was just a miracle of modern science—a list of real women who were all, apparently, interested in a man like him. The dopamine hit was instant, a rush of digital validation that competed with the adrenaline of the road. 
 
 For the next hundred miles, he drove with one hand on the wheel and one hand on the phone. *Swipe. Swipe. Swipe.* He lined up options like he lined up cargo. A teacher in Knoxville. A nurse in Chattanooga. An "Influencer" in Atlanta.
 
