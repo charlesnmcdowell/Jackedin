@@ -144,9 +144,9 @@ He didn't talk about the road. He talked about the world. He charmed her with th
 
 "I'm only trouble if you're looking for safe," Marcus replied, his voice a low rumble.
 
-Two hours and three rounds later, they were in the elevator at the Marriott. Maya had pulled a Jenga set from her purse—a drinking game version she’d bought for a bachelorette party but never used. 
+Two hours and three rounds later, they were in the elevator at the Marriott. Marcus held a bottle of Casamigos Reposado in one hand, the seal already broken. Maya stood next to him, her carry-on bag slung over her shoulder—she’d grabbed it from her trunk, prepared for an overnight stay but claiming it was "just in case." Inside was a change of clothes and a Jenga set—a drinking game version she’d bought for a bachelorette party but never used.
 
-"One block," she whispered as the doors closed. "Take a shot. Tell a truth."
+"One block," she whispered as the doors closed, eyeing the tequila bottle. "Take a shot. Tell a truth."
 
 In the room, the game didn't last long. The tower fell on the fourth turn, scattering wooden blocks across the generic hotel carpet. They both laughed, the sound warm and easy in the sterile air.
 
