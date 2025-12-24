@@ -200,4 +200,4 @@ He drove out of Atlanta, the sun hitting his mirrors. He felt a strange sense of
 
 He adjusted his mirrors, his rough hands steady on the wheel. He was a relic, a dinosaur in a world of silicon and electricity, but for now, the road was still his. He didn't see the fire coming. He didn't see the extraction. He just saw the horizon.
 
-Marcus Turner was a king in a kingdom that was slowly being deleted. And he was starting to feel the heat.
+Marcus Turner was a relic. He was a dinosaur. And he was starting to feel the heat.
