@@ -20,8 +20,8 @@ Maya is just another stop on the route, but a favorite one. He doesn't care abou
 
 ## Family & Personal Life
 *   **Trina:** Baby Mama #1 (Junior's Mom). 42 years old. Once vibrant, she is now overweight and has stopped prioritizing her appearance. Marcus is strictly cordial with her; the relationship is functional for their son, but devoid of physical attraction or romance.
-*   **Junior:** His son. A "nerdy tech kid" who lives in a luxury condo in Pearland. Marcus views Junior's digital gambling and loot boxes as a waste of "real" money, but respects that Junior is finding his own way out of the dirt.
+*   **Junior:** His son. 24 years old. A "nerdy tech kid" who lives in a luxury condo in Pearland. Marcus had him at 18. Marcus views Junior's digital gambling and loot boxes as a waste of "real" money, but respects that Junior is finding his own way out of the dirt.
 *   **Monica:** Baby Mama #2 (Keisha's Mom). A sexy 40-year-old living in Sugar Land. She’s obsessed with K-dramas and C-dramas. Marcus still maintains a "hot and heavy" secret connection with her when her husband is away.
-*   **Keisha:** His 18-year-old daughter. A high-earning Instagram influencer ($30k/month) who drives a BMW M4. She represents the "Paper Tiger" world—making a fortune through digital appearances while Marcus moves physical goods.
+*   **Keisha:** His 21-year-old daughter. A high-earning Instagram influencer ($30k/month) who drives a BMW M4. Marcus had her at 21 before getting a vasectomy. She represents the "Paper Tiger" world—making a fortune through digital appearances while Marcus moves physical goods.
 *   **Ray:** Monica's husband / Keisha's step-dad. A 5'5" master plumber/electrician. A hardworking man who respects Marcus’s visits to Keisha, unaware of the side-action between Marcus and Monica.
 *   **Personal Vehicle:** A black Ford F-150. He uses this for local visits while the Peterbilt handles the interstate cargo.

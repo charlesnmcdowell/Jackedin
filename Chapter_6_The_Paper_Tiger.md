@@ -50,7 +50,7 @@ Monica, his second baby mama, was on the porch. She was forty and looked like sh
 
 Marcus walked past her, the scent of her perfume—something expensive and floral—hitting him like a memory. Inside, the house was silent except for the melodic chirping of the TV show. 
 
-He found Keisha, his eighteen-year-old daughter, buffing the hood of a white BMW M4. She looked exactly like her mother, but with an edge of modern polish that felt sharp enough to cut.
+He found Keisha, his twenty-one-year-old daughter, buffing the hood of a white BMW M4. She looked exactly like her mother, but with an edge of modern polish that felt sharp enough to cut.
 
 "Hey, big head," Keisha said, giving him a quick, one-armed hug. "You like the new whip? Picked it up yesterday."
 
