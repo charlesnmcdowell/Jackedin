@@ -128,19 +128,29 @@ Then he saw her.
 
 Maya.
 
-Her profile was different. No filters. No "To the moon" emojis. Just a woman with a luminous, warm mahogany complexion and braided locs that looked like they were spun from silk. She was wearing a blazer that suggested she lived in a corporate world Marcus wouldn't understand, but her eyes held a depth that stopped his thumb mid-swipe.
+Her profile was different. No filters. No demands about "High Value Men." No lists of requirements that read like a ransom note—*If you ain't spending, don't message me.* Just a woman with a luminous, warm mahogany complexion and braided locs that looked like they were spun from silk. She was wearing a blazer that suggested she lived in a corporate world Marcus wouldn't understand, but her eyes held a depth that stopped his thumb mid-swipe.
 
-"I’m looking for something that isn't a simulation," she messaged.
+"I’m looking for something that isn't a simulation," her bio read.
 
-Marcus replied: "I’m in town for forty-eight hours. I got a room at the Marriott. I don't do simulations."
+Marcus replied: "I’m in town for forty-eight hours. I don't do simulations."
 
-He met her in the lobby. For the first time in his life, Marcus felt his breath hitch.
+They met at *The Capital Grille*. Marcus knew the game. You didn't invite a woman like Maya to a motel; you invited her to an experience. He’d showered at the Flying J, scrubbing the grease from his hands with Pumice until they were raw, and changed into the charcoal button-down and slacks he kept pressed in the sleeper cab. 
 
-She was better than the photos. She was a physical force. The way she moved, the way she looked him in the eye without blinking—it was a challenge. 
+When she walked in, Marcus felt his breath hitch. She was a physical force. The way she moved, the way she looked him in the eye without blinking—it was a challenge. 
 
-He took her up to the room. He didn't ask about her stats. He didn't ask about her career. He just wanted to feel the weight of her.
+He didn't talk about the road. He talked about the world. He charmed her with the quiet confidence of a man who had seen everything between coastlines. Maya watched him over the rim of her martini, eyeing the way his shirt stretched across his chest, the way his hands—clean now, but still thick and capable—held the glass.
 
-He pulled her against him, his rough, grease-stained hands finding the smooth obsidian of her skin. He felt the heat of her, the real, physical heat that no app could simulate. She smelled like vanilla and intelligence. 
+"You look like trouble," she said, a smile playing on her lips.
+
+"I'm only trouble if you're looking for safe," Marcus replied, his voice a low rumble.
+
+Two hours and three rounds later, they were in the elevator at the Marriott. Maya had pulled a Jenga set from her purse—a drinking game version she’d bought for a bachelorette party but never used. 
+
+"One block," she whispered as the doors closed. "Take a shot. Tell a truth."
+
+In the room, the game didn't last long. The tower fell on the fourth turn, scattering wooden blocks across the generic hotel carpet. They both laughed, the sound warm and easy in the sterile air.
+
+Marcus reached for her. He pulled her against him, his hands finding the smooth obsidian of her skin. He felt the heat of her, the real, physical heat that no app could simulate. She smelled like vanilla and intelligence. 
 
 Marcus didn't do "gentle" well. He was a man of torque and tension. He lifted her off her feet, her legs wrapping around his waist as he pinned her against the Marriott’s beige wallpaper. He could feel her heart racing against his chest, a frantic, human drumbeat. He buried his face in the crook of her neck, his beard rough against her skin, and for a moment, the road, the Peterbilt, and the $20,000 in rubber bands didn't exist.
 
