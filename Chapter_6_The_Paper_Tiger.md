@@ -152,7 +152,7 @@ In the room, the game didn't last long. The tower fell on the fourth turn, scatt
 
 Marcus reached for her. He pulled her against him, his hands finding the smooth obsidian of her skin. He felt the heat of her, the real, physical heat that no app could simulate. She smelled like vanilla and intelligence. 
 
-He lifted her off her feet, her legs wrapping around his waist as he pinned her against the Marriott’s beige wallpaper. He could feel her heart racing against his chest, a frantic, human drumbeat. He buried his face in the crook of her neck, his beard rough against her skin, and for a moment, the road, the Peterbilt, and the $20,000 in rubber bands didn't exist.
+He pressed close against her, his body a solid wall of heat. Maya ran her hand up his muscular chest, feeling the hard muscle beneath the shirt, before sliding it down his pants to feel the heavy bulge waiting for her. Marcus looked down deep into her eyes, holding her gaze as he kissed her—a slow, claiming pressure that made her knees weak. He ran his hands down her back and slipped them into her panties, his fingers finding her clitoris and the entrance to her vagina. She was dry at first, but under his touch, she slowly began to get wet, her breath hitching into a soft moan.
 
 He pushed her onto the bed, his body a weight that she welcomed, but as he moved to enter her, she flinched, her hand pressing against his chest.
 
