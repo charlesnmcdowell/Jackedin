@@ -154,9 +154,35 @@ Marcus reached for her. He pulled her against him, his hands finding the smooth 
 
 Marcus didn't do "gentle" well. He was a man of torque and tension. He lifted her off her feet, her legs wrapping around his waist as he pinned her against the Marriott’s beige wallpaper. He could feel her heart racing against his chest, a frantic, human drumbeat. He buried his face in the crook of her neck, his beard rough against her skin, and for a moment, the road, the Peterbilt, and the $20,000 in rubber bands didn't exist.
 
-He pushed her onto the bed, his body a weight that she welcomed with a low, desperate sound. He showed her what twenty years of hard labor felt like when it was channeled into a single purpose. He was methodical, his calloused thumbs tracing the curve of her jaw, his mouth demanding and sure. He made her forget the data. He made her forget the spreadsheets. 
+He pushed her onto the bed, his body a weight that she welcomed, but as he moved to enter her, she flinched, her hand pressing against his chest.
 
-He took her from behind, his large hands gripping her hips, anchoring her to the present. Every deep, rhythmic stroke was a reminder of what was real. He watched the way her muscles tensed, the way her back arched, until the room blurred and she was screaming his name into the pillows, her body shivering under the raw force of him. He stayed in her until the last of the tremors faded, his breath hot against her ear.
+"Wait," she whispered, her voice tight. "Slow down. It's... it's been a while."
+
+Marcus stopped instantly. He looked down at her, seeing the hesitation in her eyes. She was tight, incredibly so—a product of a generation that spent more time online than in bed. 
+
+"I got you," he rumbled, his voice low and reassuring. "I know exactly how to handle that."
+
+He moved down her body, his hands parting her thighs with a deliberate slowness. He didn't rush. He went to work with the expertise of a man who knew that pleasure was a mechanism with specific inputs. His tongue found her, broad and skilled, teasing out the tension until she was arching off the mattress. He made her come twice, her cries muffled by the hotel duvet, before he even thought about moving.
+
+Then he turned her over. "Head down, butt up," he commanded softly.
+
+She obeyed, trembling. Marcus didn't just focus on the obvious; he rimmed her, his tongue exploring the sensitive skin while he savagely worked her walls and clitoris like a drowning man seeking air. The sensation was overwhelming—a dual assault that left her gasping, her moans turning guttural and raw. She was soaking wet now, her body primed and begging for him.
+
+He flipped her over, pulling her toward the edge of the bed while he stood between her legs. He lifted her ankles, holding them high in a wheelbarrow position, exposing her completely to him. He guided himself into her, slowly, inch by inch. She was still incredibly tight, gripping him like a velvet vice, but the wetness made it possible. He gave her more and more, watching her face contort in pleasure as she took him deeper.
+
+"That's it," he groaned, the friction becoming too much. "Take it."
+
+He couldn't hold back. The tightness, the heat, the way she looked up at him with those wide, trusting eyes—it broke his control. He pulled out at the last second, his release hitting her belly and chest in thick, white ropes. 
+
+They collapsed for a moment, the room spinning from the Casamigos and the adrenaline. Maya was panting, her chest heaving, her skin glistening.
+
+"You ready for round two?" she whispered, a mischievous glint returning to her eyes.
+
+Before he could answer, she moved. She started sucking him, her mouth hot and eager, getting him nice and lubricated. She took him deep, her tongue swirling, then moved to take his testicles in her mouth, working them with a dedication that made Marcus grip the sheets. She did this for nearly fifteen minutes, a relentless rhythm of saliva and suction. Marcus watched her, his hand tangling in her locs, rubbing down her back, caressing the curve of her butt. He thought she was going to choke herself, the saliva running down his shaft and balls, but she didn't stop.
+
+Finally, just before he was close to the edge again, she climbed up. She straddled him, sinking down onto him with a gasp. She began to ride him, grinding him into the mattress, her moans building as she found her own rhythm. She reached her orgasm first, her body shuddering violently as she milked him, and the sensation pushed Marcus over the precipice. He released inside her this time, a deep, emptying flood that left him lightheaded.
+
+She collapsed on top of him, her head resting on his chest. They both fell asleep like that—drunk, spent, her never getting off, his penis throbbing softly inside her, his balls sufficiently emptied. The silence in the room was heavy, not with awkwardness, but with the rare, exhausted peace of the truly satisfied.
 
 The Billboard
 
