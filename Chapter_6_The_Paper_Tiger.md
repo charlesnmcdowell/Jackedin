@@ -20,7 +20,7 @@ Marcus’s own phone buzzed in the cup holder. It was his son, Junior.
 
 "You don't get it, Dad," Junior said, a trace of pity in his voice. "A rubber band is a liability. Inflation is eating your cash while I’m holding the line. I lost twenty on Dogecoin last week, yeah, but I made seventy-five on Bitcoin this morning. We’re taking it back from the suits. It’s just numbers, Pop. Just numbers on a screen."
 
-Marcus hung up, his head spinning. He decided to see it for himself. He steered the Peterbilt toward Junior’s new zip code in Pearland, the truck feeling like a tank in the manicured suburban streets.
+Marcus hung up, his head spinning. He finished his run, dropped his trailer at the Houston yard, and swapped the massive Peterbilt for his black Ford F-150. He decided to see it for himself. He steered the pickup toward Junior’s new zip code in Pearland, the truck feeling much more at home in the manicured suburban streets than the eighteen-wheeler ever would.
 
 Junior’s condo was a glass-and-steel cube that looked like it belonged in a sci-fi movie. Inside, the air smelled of expensive cologne and ozone. Marcus sat on a couch that cost more than his first three trucks, watching Junior play a football game on a screen that took up half the wall.
 
@@ -156,24 +156,10 @@ In the morning, Marcus watched her get dressed. She looked professional again. S
 
 "As soon as the road lets me," Marcus said. He reached for his pants, feeling the reassuring lump of cash in his wallet. He didn't promise her a picket fence. He didn't promise her the American Dream. He just promised her the truth.
 
-He liked Maya. She was the only "Real" thing he’d found in the digital buffet. 
+Marcus liked Maya. She was the only "Real" thing he’d found in the digital buffet. 
 
-He drove out of Atlanta, the sun hitting his mirrors. He stopped for gas at a high-end station on the edge of the suburbs.
+He drove out of Atlanta, the sun hitting his mirrors. He felt a strange sense of contentment, a rare moment where the world didn't feel like it was trying to sell him a ghost. He thought about Keisha and her eighty-five-thousand-dollar BMW. He thought about Junior and his glass condo. He didn't really understand what an "Instagram model" was, or how moving pixels around on a screen could pay for a life like that, but as long as they were healthy and winning, he wasn't going to lose sleep over the mechanics.
 
-Above the pumps, a massive digital billboard flickered to life.
+He adjusted his mirrors, his rough hands steady on the wheel. He was a relic, a dinosaur in a world of silicon and electricity, but for now, the road was still his. He didn't see the fire coming. He didn't see the extraction. He just saw the horizon.
 
-It was a woman in a bikini, lounging by a pool that looked too blue to be real. Her skin was flawless. Her smile was a million-dollar invitation. The text read: *“Follow Keisha_B for the Lifestyle You Deserve.”*
-
-Marcus froze, the gas nozzle heavy in his hand.
-
-It was her.
-
-Keisha. His daughter. 
-
-She had 1.5 million followers. She was an "Influencer." She was a "Content Creator." She was a paper tiger, selling a version of herself to millions of strangers while her father moved produce across state lines to pay for a life she was pretending to lead.
-
-He looked at the billboard, then at the grease under his own fingernails. 
-
-The match was lit. The world was waiting to burn.
-
-Marcus Turner was a relic. He was a dinosaur. And he was starting to feel the heat.
+Marcus Turner was a king in a kingdom that was slowly being deleted. And he was starting to feel the heat.

@@ -20,7 +20,7 @@
 ### Love Interests
 *   **Marcus Turner:** 42, Truck Owner-Operator.
     *   **Role:** The Physical Connection / The Complication.
-    *   **Traits:** "Zane-style" intensity, secretive about family, helps with logistics but brings chaos.
+    *   **Traits:** "Zane-style" intensity, secretive about family, helps with logistics but brings chaos. Based in Houston, TX.
 *   **David:** The Thrift Store Guy (Chapter 2).
     *   **Role:** The "One That Got Away." Represents authentic connection Maya wasn't ready for.
 *   **Caleb:** The "Noir Detective" (Chapter 2).

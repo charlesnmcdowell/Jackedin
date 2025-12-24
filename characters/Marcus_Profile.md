@@ -4,7 +4,7 @@
 **Age:** 42  
 **Job:** Independent Owner-Operator (Truck Driver).  
 **Background:** Hard labor survivor. Farm work, moving, towing. 10 siblings, single mother household.  
-**Location:** The Highway / Nomadic (Home base: Memphis or Nashville).
+**Location:** The Highway / Nomadic (Home base: Houston, TX - keeps his personal Ford here).
 
 ## Appearance
 Marcus is a physical force. Tall, dark-skinned, with the kind of body that isn't built in a gym but carved out of decades of lifting heavy things. He keeps a clean-cut fade and a groomed beard that frames a handsome, weary face. He knows he looks good. He knows that when he puts on a tight shirt that accentuates his chest and arms, the conversation changes.
