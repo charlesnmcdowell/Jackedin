@@ -88,6 +88,8 @@ Panting, Monica reached for the edge of the bed. She was already coming back to 
 
 He was back in his Ford truck before the shower had even stopped running. He drove away, the suburban perfection of Sugar Land blurring in his mirrors. He felt a strange mix of triumph and disgust. He was the king of his own little world, but the borders were getting smaller every day.
 
+Marcus didn't judge Ray, but he didn't envy him either. In his younger days, Marcus had been the "other guy" more times than he could count. He was the secret in the phone, the shadow in the bedroom when the "good man" was out working a double shift to pay for the granite countertops. He’d seen the most "loyal" women crumble for a few hours of the raw physicality he brought to the table. It had left him with a deep, jagged cynicism that no amount of church-going or self-help could smooth over. He didn't trust relationships because he knew how easily they could be picked apart. He was part of the problem, the wrecking ball in the sanctuary, but he couldn't help it. Women were his vice, his drug, his fatal flaw. He needed the touch of them to feel alive, even if he didn't believe a single word they said.
+
 The Buffet
 
 Marcus leaned back in the booth at the Flying J, watching his coworker, Slim, swipe through his phone with the focus of a bomb disposal technician. Slim was fifty, with a gut that hung over his belt and a marriage that had been dead for a decade.
