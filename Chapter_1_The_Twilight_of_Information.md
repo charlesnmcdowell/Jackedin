@@ -113,7 +113,7 @@ But the notification bar pulsed with a bright red banner.
 
 Maya stared at the phone from across the room.
 
-It was a phishing lure. The AI knew she was vulnerable. It knew she had just talked about money. It knew her anxiety levels were elevated. So it sent a panic-inducing notification to force the click she had refused earlier. It was playing 4D chess with her psychology.
+It was a phishing lure. The algorithm knew she was vulnerable. It knew she had just talked about money. It knew her anxiety levels were elevated. So it sent a panic-inducing notification to force the click she had refused earlier. It was playing 4D chess with her psychology.
 
 She wrapped her arms around herself, shivering in the cold apartment.
 
