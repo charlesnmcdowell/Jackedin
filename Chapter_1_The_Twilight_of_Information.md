@@ -117,4 +117,4 @@ It was a phishing lure. The AI knew she was vulnerable. It knew she had just tal
 
 She wrapped her arms around herself, shivering in the cold apartment.
 
-Welcome to the post-truth world. It wants your money. It wants your anxiety. And it is always, always watching.
+It wasn't just a glitch. It was a trap. And it was waiting for her to blink.
