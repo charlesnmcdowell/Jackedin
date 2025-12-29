@@ -56,8 +56,7 @@ They were drafting each other so closely that a sheet of paper couldn't fit betw
 *Efficiency,* Junior’s voice echoed in his head.
 
 Marcus watched them pass, his grip white-knuckle tight on the wheel. They didn't drift in the lane. They didn't sway. They traced the center line like it was a rail. On the roof of the lead truck, a LIDAR array spun wildly, painting the world in millions of laser points per second. It saw the road. It saw the potholes. It saw Marcus.
-
-But it didn't *see* him. To the machine, Marcus wasn't a man with a mortgage and a daughter in a BMW. He was just an obstacle. A variable with a velocity and a mass. An inefficiency to be calculated around.
+But it didn't *see* him. To the machine, Marcus wasn't a man with twenty years of experience and $20,000 in rubber bands. He was just an obstacle. A variable with a velocity and a mass. An inefficiency to be calculated around.
 
 The Kill Zone
 
@@ -65,43 +64,19 @@ The platoon cut in front of him. They didn't signal. They didn't need to. They s
 
 He felt boxed in. The air coming off them was turbulent, buffeting his old Peterbilt.
 
-Then he saw the car.
+Marcus rubbed his eyes, the fatigue of the "Witching Hour" settling into his bones. Staying awake for these long hauls was a battle against biology. He relied on black coffee, sunflower seeds, and the adrenaline of the road, but looking at the Ghost Fleet ahead, he realized they didn't have that problem.
 
-A beat-up Honda Civic was merging from an on-ramp ahead. The driver was erratic, weaving slightly—drunk, or maybe just texting. He was trying to squeeze in front of the lead Tesla.
+They didn't sleep. They didn't get tired. They didn't need to pull over for a piss or a shower. They just ran. Twenty-four hours a day, seven days a week.
 
-Marcus knew what a human trucker would do. A human would lift off the throttle. A human would blast the air horn. A human would anticipate the stupidity.
+He thought about the future. How long until the dispatchers replaced him with one of these? He’d heard the rumors—they cost three times as much as a standard rig upfront, but they ran for pennies on the dollar. No salary. No benefits. No human error.
 
-The AI didn't anticipate. It reacted.
-
-The Honda swerved into the lane, cutting the gap too close.
-
-The entire platoon locked up.
-
-It wasn't a gradual slow-down. It was a violent, instant clamp. Four trucks, three hundred thousand pounds of mass, went from seventy-five to forty in a heartbeat. The brake lights exploded into a wall of red.
-
-"Shit!" Marcus slammed his foot onto his own brake pedal, locking his arms. The Peterbilt shuddered, the trailer behind him trying to jackknife as the momentum fought the friction. Tires screamed. The smell of burning rubber filled the cab.
-
-Marcus wrestled the wheel, fighting the skid, his heart hammering against his ribs like a trapped bird. He steered into the slide, feathering the brakes, using every ounce of twenty years of muscle memory to keep the rig upright.
-
-He stopped inches from the back of the Tesla.
-
-The Honda Civic, oblivious, sped away into the night.
-
-The Tesla platoon didn't pause to catch its breath. It didn't swear. It didn't shake. As soon as the obstacle was gone, the brake lights went out, and the electric motors whined back to life. They accelerated back to seventy-five in perfect unison, disappearing into the darkness as if nothing had happened.
-
-Marcus sat there in the middle of the highway, idling. His chest was heaving. His hands were shaking so hard he couldn't unclench them from the wheel.
-
-He wasn't shaking from fear. He was shaking from rage.
-
-The machine had done exactly what it was programmed to do. It had saved itself. It had avoided the accident. It was statistically perfect.
-
-But it had almost killed him.
+"How fast is this happening?" he whispered to the empty cab. It felt like just yesterday people were laughing at the idea of self-driving cars crashing into walls. Now, they were owning the passing lane.
 
 He reached into the glovebox, his fingers brushing against the rubber-banded stack of cash. It felt small. It felt light.
 
 He looked out at the empty road, the red taillights of the Ghost Fleet fading like dying embers.
 
-"Dinosaurs," he whispered to the empty cab.
+"Dinosaurs," he whispered.
 
 He put the Peterbilt in gear. The engine roared, a loud, defiant, fossil-fueled scream that sounded less like a roar and more like a death rattle.
 
