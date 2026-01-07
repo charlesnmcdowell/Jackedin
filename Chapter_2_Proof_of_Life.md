@@ -63,7 +63,7 @@ Hobbies: Shopping, Travel, Gym, Hiking, Fine Dining.
 
 It was technically true. But the algorithm didn't want the fine print. It wanted the aspirational Maya.
 
-A few months ago, she had been seeing a forty-two-year-old truck driver named Marcus. It had been a wildfire. Marcus was all rough hands and the scent of diesel and tobacco. Their encounters were a collision of raw need and physical intensity. They would meet up in cheap hotels on the edge of the city, or in the cramped, darkened cab of his truck, the rhythmic thrum of the engine vibrating through their bodies as they lost themselves in each other. It was the kind of relationship that left her bruised, breathless, and wanting more of a world she knew she couldn't stay in.
+For the last two years, she had been seeing a forty-two-year-old truck driver named Marcus. It had started as a wildfire—a collision of raw need and physical intensity. Marcus was all rough hands and the scent of diesel and tobacco. Their encounters were a collision of raw need and physical intensity. They would meet up in cheap hotels on the edge of the city, or in the cramped, darkened cab of his truck, the rhythmic thrum of the engine vibrating through their bodies as they lost themselves in each other. It was the kind of relationship that left her bruised, breathless, and wanting more of a world she knew she couldn't stay in.
 
 But Marcus was always on the road. He was a ghost in the making. Maya wanted stability. She wanted someone who worked in an office.
 

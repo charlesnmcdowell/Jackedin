@@ -1,26 +1,31 @@
 Chapter 6: The Paper Tiger
 
+**SEASON 2: THE PHYSICAL EXTRACTION**
+*Timeline: Two Years Earlier*
+
 The Stacks
 
 Marcus Turner sat in the cab of his Peterbilt, idling in a rest stop just outside of Charlotte. The rain hammered against the roof, a relentless, metallic drumming that matched the low thrum of the engine beneath his seat. It was a sound he felt more than he heard—a vibration that settled deep in his bones, reminding him of the sheer weight he was controlling.
 
-He was forty-two years old, and he felt every mile of it.
+He was forty years old, and he felt every mile of it.
 
-In his glovebox, secured with a thick rubber band, sat twenty thousand dollars in cash. It was his insurance policy, his retirement fund, his peace of mind. Marcus didn't trust numbers on a screen. You couldn't delete a rubber band. You couldn't hack a hundred-dollar bill. In a world that was becoming increasingly obsessed with ghosts, Marcus trusted only what he could touch.
+In his glovebox, secured with a thick rubber band, sat twenty-five thousand dollars in cash. It was his insurance policy, his retirement fund, his peace of mind. Marcus didn't trust numbers on a screen. You couldn't delete a rubber band. You couldn't hack a hundred-dollar bill. In a world that was becoming increasingly obsessed with ghosts, Marcus trusted only what he could touch.
 
 Outside the rain-streaked window, he watched a kid in a white Tesla parked two spots over. The car looked less like a vehicle and more like a high-end appliance. Inside, the kid’s face was illuminated by the pale blue glow of a smartphone. He was laughing, tapping the screen with a frantic energy.
 
 Marcus’s own phone buzzed in the cup holder. It was his son, Junior.
 
-"Dad, you see the ticker? We’re hitting the moon," Junior said the moment Marcus answered. His voice was breathless, vibrating with the same manic energy as the kid in the Tesla. "I’m up to a hundred and six thousand. I’m cashing out twenty. I already put fifteen down on that condo in Pearland—the one with the smart-lock and the floor-to-ceiling glass. And I bought you that new electric rig, the one with the sleeper suite and the massage chair. It’s coming to the yard on Tuesday. You shouldn't be breaking your back in that old rattle-trap anymore. It’s not efficient."
+"Dad, you see the ticker? We’re hitting the moon," Junior said the moment Marcus answered. His voice was breathless, vibrating with the same manic energy as the kid in the Tesla. "I’m up to a hundred and six thousand. I’m cashing out twenty. I already put fifteen down on that condo in Pearland—the one with the smart-lock and the floor-to-ceiling glass. And I'm telling you, Pop, you need to look at those new electric rigs, the Argus-5s. They've got a sleeper suite and a massage chair. I’ll put the down payment for you on Tuesday. You shouldn't be breaking your back in that old rattle-trap anymore. It’s not efficient."
 
 *Efficient.* The word tasted like copper in Marcus's mouth.
 
-"I don't need a massage chair, Junior," Marcus said, his voice a low rumble, though a small part of him felt a flicker of pride. "I need you to not lose the principal. That hundred thousand is a ghost until you put it in a rubber band. You hear me?"
+"I don't need a massage chair, Junior," Marcus said, his voice a low rumble, though a small part of him felt a flicker of pride. "And I don't need your crypto-coins buying my hardware. I need you to not lose the principal. That hundred thousand is a ghost until you put it in a rubber band. You hear me?"
 
 "You don't get it, Dad," Junior said, a trace of pity in his voice. "A rubber band is a liability. Inflation is eating your cash while I’m holding the line. I lost twenty on Dogecoin last week, yeah, but I made seventy-five on Bitcoin this morning. We’re taking it back from the suits. It’s just numbers, Pop. Just numbers on a screen."
 
-Marcus hung up, his head spinning. He finished his run, dropped his trailer at the Houston yard, and swapped the massive Peterbilt for his black Ford F-150. He decided to see it for himself. He steered the pickup toward Junior’s new zip code in Pearland, the truck feeling much more at home in the manicured suburban streets than the eighteen-wheeler ever would.
+Marcus hung up, his head spinning. He had twelve hundred miles of asphalt between Charlotte and the Houston yard to think about it. The rain didn't let up until he crossed the Louisiana border, the grey sky finally breaking into the humid, hazy glare of East Texas. 
+
+He dropped his trailer—a load of furniture for a new corporate office—at the yard near the Ship Channel and swapped the massive Peterbilt for his black Ford F-150. He needed to get off the clock. He needed to see it for himself. He steered the pickup toward Junior’s new zip code in Pearland, the truck feeling much more at home in the manicured suburban streets than the eighteen-wheeler ever would.
 
 Junior’s condo was a glass-and-steel cube that looked like it belonged in a sci-fi movie. Inside, the air smelled of expensive cologne and ozone. Marcus sat on a couch that cost more than his first three trucks, watching Junior play a football game on a screen that took up half the wall.
 
@@ -38,7 +43,7 @@ Marcus watched as Junior clicked again. Another fifty dollars vanished into the 
 
 Marcus looked at his son—the kid he’d raised on grease and grit—and felt a cold distance. Junior was a hybrid of a tech bro and a gambler, his brain rewired by years of Reddit memes, GameStop rallies, and the dopamine loops of TikTok. To Junior, the twenty-thousand in the Peterbilt’s glovebox wasn't security; it was "inefficient energy." 
 
-He thought about Junior's mother, Trina. She was forty-two, the same age as Marcus, but the years hadn't been as kind to her. She’d grown heavy, her once-sharp features softened by a sedentary life and a resignation that Marcus couldn't relate to. When he dropped by to see Junior, he was always cordial—a polite nod, a brief check-in about the bills—but the fire had gone out of that connection a decade ago. He stayed for the kid, but he lived for the road.
+He thought about Junior's mother, Trina. She was forty, the same age as Marcus, but the years hadn't been as kind to her. She’d grown heavy, her once-sharp features softened by a sedentary life and a resignation that Marcus couldn't relate to. When he dropped by to see Junior, he was always cordial—a polite nod, a brief check-in about the bills—but the fire had gone out of that connection a decade ago. He stayed for the kid, but he lived for the road.
 
 The Family Business
 
@@ -94,7 +99,7 @@ In his younger days, Marcus had been the "other guy" more times than he could co
 
 The Buffet
 
-Marcus leaned back in the booth at the Flying J, watching his coworker, Slim, swipe through his phone with the focus of a bomb disposal technician. Slim was fifty, with a gut that hung over his belt and a marriage that had been dead for a decade.
+Two days later, Marcus was back in the Peterbilt, the F-150 tucked safely in the yard. He was hauling a load of steel pipe destined for a construction site in Georgia. He leaned back in the booth at the Flying J in Lake Charles, watching his coworker, Slim, swipe through his phone with the focus of a bomb disposal technician. Slim was fifty, with a gut that hung over his belt and a marriage that had been dead for a decade.
 
 "Forget Hinge, Marc," Slim said, shoving the phone in Marcus’s face. "You need BLK. It’s like a digital menu. Look at this one in Memphis. Says she loves 'experienced' men. I got her lined up for Tuesday."
 
@@ -114,7 +119,7 @@ But as he sat in the booth, the app seemed to be... learning. The women started 
 
 It felt... easy. Dangerously easy. Marcus didn't suspect the filters, the bots, or the professional cat-fishers lurking behind the pixels. To him, it was just a miracle of modern science—a list of real women who were all, apparently, interested in a man like him. The dopamine hit was instant, a rush of digital validation that competed with the adrenaline of the road. 
 
-For the next hundred miles, he drove with one hand on the wheel and one hand on the phone. *Swipe. Swipe. Swipe.* He lined up options like he lined up cargo. A teacher in Knoxville. A nurse in Chattanooga. An "Influencer" in Atlanta.
+For the next hundred miles, he drove East, hauling a load of steel pipe destined for a construction site in Georgia. He drove with one hand on the wheel and one hand on the phone. *Swipe. Swipe. Swipe.* He lined up options like he lined up cargo. A teacher in Birmingham. A nurse in Chattanooga. An "Influencer" in Atlanta.
 
 But the reality hit back hard.
 
@@ -132,7 +137,7 @@ Her profile was different. No filters. No demands about "High Value Men." No lis
 
 "I’m looking for something that isn't a simulation," her bio read.
 
-Marcus replied: "I’m in town for forty-eight hours. I don't do simulations."
+Marcus replied: "I’m rolling into Atlanta tomorrow. I'll be in town for forty-eight hours. I don't do simulations."
 
 They met at *The Capital Grille*. Marcus knew the game. You didn't invite a woman like Maya to a motel; you invited her to an experience. He’d showered at the Flying J, scrubbing the grease from his hands with Pumice until they were raw, and changed into the charcoal button-down and slacks he kept pressed in the sleeper cab. 
 

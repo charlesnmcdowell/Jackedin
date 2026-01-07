@@ -76,7 +76,7 @@ The short man tilted his cigar in a slow, masculine arc, pointing it toward the 
 
 "Well, I think a man needs to—" she started, but as her explanation got too wordy, the short man reached out with a ringed hand and tapped a button on a control panel. Her mic went dead instantly. He didn't even look at her, just gave his co-host a knowing nod.
 
-The tall man leaned into his Shure SM7B mic, catching the cue for a witty comeback. "See, that’s the problem. You want a man who makes six figures, is six feet tall, and listens to your feelings for three hours. That guy exists. He's the top 1%. But guess what? He has options. He has an abundance of women throwing themselves at him. Why would he settle down with you when he can have a different girl every week? He's not looking for a business partner; he's looking for a peace of mind."
+The tall man leaned into his mic, catching the cue for a witty comeback. "See, that’s the problem. You want a man who makes six figures, is six feet tall, and listens to your feelings for three hours. That guy exists. He's the top 1%. But guess what? He has options. He has an abundance of women throwing themselves at him. Why would he settle down with you when he can have a different girl every week? He's not looking for a business partner; he's looking for a peace of mind."
 
 "Because that's toxic!" the blonde yelled, her mic still live.
 

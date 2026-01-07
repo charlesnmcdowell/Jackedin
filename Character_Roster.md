@@ -18,7 +18,7 @@
     *   **Role:** Supportive partner. (Renamed from David to avoid conflict).
 
 ### Love Interests
-*   **Marcus Turner:** 42, Truck Owner-Operator.
+*   **Marcus Turner:** 42 (Season 1) / 40 (Season 2), Truck Owner-Operator.
     *   **Role:** The Physical Connection / The Complication.
     *   **Traits:** "Zane-style" intensity, secretive about family, helps with logistics but brings chaos. Based in Houston, TX.
 *   **David:** The Thrift Store Guy (Chapter 2).
@@ -49,11 +49,11 @@
 
 ### Family ( The "Secret" Drama)
 *   **Trina:** Baby Mama #1 (Junior's Mom).
-    *   **Role:** The cordial past. 42, same age as Marcus, but has grown overweight and "let herself go." Marcus remains polite for Junior's sake but the spark is dead.
+    *   **Role:** The cordial past. 42 (Season 1) / 40 (Season 2), same age as Marcus, but has grown overweight and "let herself go." Marcus remains polite for Junior's sake but the spark is dead.
 *   **Junior:** Marcus's Son.
     *   **Role:** The innocent/Tech-savvy. Wants tech/toys Marcus can barely afford.
 *   **Monica:** Baby Mama #2 (Keisha's Mom).
-    *   **Role:** The "Spicy" Past. Sexy 40-year-old, lives in Sugar Land, obsessed with Asian dramas.
+    *   **Role:** The "Spicy" Past. Sexy 42 (Season 1) / 40 (Season 2), lives in Sugar Land, obsessed with Asian dramas.
 *   **Keisha:** Marcus's Daughter.
     *   **Role:** The Influencer. 18, making $30k/month, drives a BMW.
 *   **Ray:** Monica’s Husband / Keisha’s Step-dad.

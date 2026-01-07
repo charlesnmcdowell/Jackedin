@@ -67,17 +67,17 @@ Maya took the advice. She stopped going into the office entirely, citing "remote
 
 She flew to Houston to meet Marcus.
 
-Marcus had upgraded. His new rig was a beast of chrome and sensors, a semi-autonomous Kenworth that practically drove itself on the interstate.
+Marcus had upgraded—or so he said. His new rig was the Argus-5, a matte-black monolith of chrome and sensors that looked more like a stealth bomber than a truck. 
 
 "Watch this," Marcus grinned, tapping a screen on the dash. "Auto-Pilot engaged. Hands-free, baby."
 
 The truck hummed, keeping perfect lane discipline while Marcus turned his chair to face her. 
 
-For a week, the world outside the cab ceased to exist. It was just the hum of the engine, the endless asphalt ribbon of I-10, and the heat between them.
+For a week, the world outside the cab ceased to exist. It was just the whine of the electric motors, the endless asphalt ribbon of I-10, and the heat between them.
 
 They were inseparable, stuck together like hot glue. Maya sat in the passenger seat with her laptop, her bare feet on the dash, wearing one of his oversized t-shirts that smelled like diesel and expensive cologne. Marcus would drive with one hand, the other resting heavily, possessively, on her thigh, his thumb tracing slow circles on her skin.
 
-At night, parked in the secluded corners of truck stops from San Antonio to El Paso, the sleeper cabin became their universe. The sex was voracious, a frantic reclaiming of time lost, fueling the unspoken truce between them.
+At night, parked in the secluded corners of truck stops from San Antonio to El Paso, the sleeper cabin became their universe. The Argus's backup batteries provided a dim, amber glow, turning the space into a warm sanctuary. The sex was voracious, a frantic reclaiming of time lost, fueling the unspoken truce between them.
 
 One night, outside of Las Cruces, the moonlight filtered through the skylight, illuminating the sheen of sweat on his shoulders. Maya traced the line of his spine, feeling the hard muscle beneath.
 
@@ -87,7 +87,7 @@ Marcus rolled over, pulling her flush against his chest. His beard scratched her
 
 "I'm serious," Maya said, propping herself up on one elbow. "I could do this. Permanently. I can work from anywhere. Why go back to that apartment? Why pay rent when I can just... be here? With you."
 
-Marcus went still. The air in the cabin shifted. He looked at her, his eyes unreadable in the dark.
+Marcus went still. The air in the cabin shifted. He looked at her, his eyes unreadable in the dark. Maya saw a flash of something in his expression—not love, but a weary, desperate calculation. 
 
 His phone buzzed on the nightstand. 
 
@@ -95,7 +95,7 @@ This time, he didn't check it. He just let it buzz.
 
 "If you're down," he said, his voice low, ignoring the vibration. "I'm down. It makes sense, right? You got the remote gig. I got the rig. We save money. We live."
 
-He kissed her, deep and slow, sealing the deal. But Maya heard the phone. It felt like a warning she was choosing to ignore.
+He kissed her, deep and slow, sealing the deal. But Maya heard the phone. It felt like a warning she was choosing to ignore. She didn't know the truck wasn't his. She didn't know about the fifteen-percent gross or the eighty-two-year debt. She only saw the "Independent Owner-Operator" he pretended to be.
 
 The Call
 

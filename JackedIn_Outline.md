@@ -18,7 +18,7 @@
     *   *Plot:* The first Tesla Semis appear. Marcus's son worries about AI layoffs while his daughter complains about "AI Models" stealing her work. Marcus navigates baby-mama drama and chooses to talk to women "in the real world" again, but keeps Maya as his anchor.
 *   **Chapter 8: The Gridlock.**
     *   *Theme:* Infrastructure Fragility and the Security of Control.
-    *   *Plot:* A massive power outage in San Francisco leaves AI cars frozen in the streets while human drivers navigate the chaos. Marcus rents a self-driving truck to "test the future" and feels the first pangs of techno-phobia. He finds relief in a heated two-day session with Maya.
+    *   *Plot:* A massive power outage in San Francisco leaves AI cars frozen in the streets while human drivers navigate the chaos. Marcus trades in his Peterbilt and spends his life savings to buy a "Next-Gen" Argus-5, realizing too late he’s traded freedom for a monthly software subscription. He finds relief in a heated two-day session with Maya during the blackout.
 *   **Chapter 9: The Crash.**
     *   *Theme:* The Failure of the Promise.
     *   *Plot:* Marcus puts too much faith in the AI truck and suffers a near-fatal crash. The illusion of an easy retirement is shattered. His son admits to being laid off and driving Uber, while Marcus makes the devastating discovery of his daughter’s OnlyFans career.

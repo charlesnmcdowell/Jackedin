@@ -56,7 +56,7 @@ They were drafting each other so closely that a sheet of paper couldn't fit betw
 *Efficiency,* Junior’s voice echoed in his head.
 
 Marcus watched them pass, his grip white-knuckle tight on the wheel. They didn't drift in the lane. They didn't sway. They traced the center line like it was a rail. On the roof of the lead truck, a LIDAR array spun wildly, painting the world in millions of laser points per second. It saw the road. It saw the potholes. It saw Marcus.
-But it didn't *see* him. To the machine, Marcus wasn't a man with twenty years of experience and $20,000 in rubber bands. He was just an obstacle. A variable with a velocity and a mass. An inefficiency to be calculated around.
+But it didn't *see* him. To the machine, Marcus wasn't a man with twenty years of experience and $25,000 in rubber bands. He was just an obstacle. A variable with a velocity and a mass. An inefficiency to be calculated around.
 
 The Kill Zone
 
@@ -72,7 +72,7 @@ He thought about the future. How long until the dispatchers replaced him with on
 
 "How fast is this happening?" he whispered to the empty cab. It felt like just yesterday people were laughing at the idea of self-driving cars crashing into walls. Now, they were owning the passing lane.
 
-He reached into the glovebox, his fingers brushing against the rubber-banded stack of cash. It felt small. It felt light.
+He reached into the glovebox, his fingers brushing against the rubber-banded stack of cash. Twenty-five thousand dollars. His entire life's work, sitting in a plastic-lined compartment like a small, paper lung. It felt light. It felt dangerously small.
 
 He looked out at the empty road, the red taillights of the Ghost Fleet fading like dying embers.
 
