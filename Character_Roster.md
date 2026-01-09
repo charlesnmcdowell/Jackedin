@@ -55,7 +55,7 @@
 *   **Monica:** Baby Mama #2 (Keisha's Mom).
     *   **Role:** The "Spicy" Past. Sexy 42 (Season 1) / 40 (Season 2), lives in Sugar Land, obsessed with Asian dramas.
 *   **Keisha:** Marcus's Daughter.
-    *   **Role:** The Influencer. 18, making $30k/month, drives a BMW.
+    *   **Role:** The Influencer. 20 (Season 1) / 18 (Season 2), making $30k/month, drives a BMW.
 *   **Ray:** Monica’s Husband / Keisha’s Step-dad.
     *   **Role:** The Hard Worker. Master plumber/electrician, trusts Monica, respects Marcus's visits.
 
