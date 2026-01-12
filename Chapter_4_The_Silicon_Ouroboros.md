@@ -28,7 +28,7 @@ Maya closed the tab. "Bonus? Aria, I don't even know what the criteria are. Hend
 
 "The criteria are adaptability, Maya. And you are adapting beautifully."
 
-"Besides," Maya muttered, "Jaylen got a twenty percent bump just by jumping to that startup in Austin. Nobody gets rich on retention bonuses anymore. It’s an eight thousand dollar payout. Maybe. If Henderson is feeling generous."
+"Besides," Maya muttered, "My coworker Kevin got a twenty percent bump just by jumping to that startup in Austin. Nobody gets rich on retention bonuses anymore. It’s an eight thousand dollar payout. Maybe. If Henderson is feeling generous."
 
 The Rabbit Hole
 
@@ -95,7 +95,7 @@ This time, he didn't check it. He just let it buzz.
 
 "If you're down," he said, his voice low, ignoring the vibration. "I'm down. It makes sense, right? You got the remote gig. I got the rig. We save money. We live."
 
-He kissed her, deep and slow, sealing the deal. But Maya heard the phone. It felt like a warning she was choosing to ignore. She didn't know the truck wasn't his. She didn't know about the fifteen-percent gross or the eighty-two-year debt. She only saw the "Independent Owner-Operator" he pretended to be.
+He kissed her, deep and slow, sealing the deal. But Maya heard the phone. It felt like a warning she was choosing to ignore.
 
 The Call
 
