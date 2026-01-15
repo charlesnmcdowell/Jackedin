@@ -64,9 +64,7 @@ def create_video(chapter_num, audio_file, image_file):
 
 if __name__ == "__main__":
     chapters = [
-        (1, "JackedIN_md_Chapter_1.mp3", "JackedIN_bookcover.png"),
-        (2, "JackedIN_md_Chapter_2.mp3", "JackedIN_bookcover.png"),
-        (3, "JackedIN_md_Chapter_3.mp3", "JackedIN_bookcover.png"),
+        (4, "JackedIN_md_Chapter_4.mp3", "JackedIN_bookcover.png"),
     ]
     
     for ch_num, audio, img in chapters:
